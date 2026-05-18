@@ -7,6 +7,89 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 01:12
+---
+
+## WithYashar — post 11605
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar part5
+</div>
+
+## WithYashar — post 11604
+
+<div align="center">
+  <a href="telegram/content/WithYashar_11604_1779140563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎬 Video
+</div>
+
+## mwarmonitor — post 9280
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 ترامپ رسماً دنیا را گذاشته روی ویبره و در این میان، مردم ایران هم به جای زندگی، دارند روی تردمیلِ اضطرابِ ملی دو می‌زنند! تصور کن ارتش آمریکا با مدرن‌ترین تجهیزات میلیارد دلاری و خلبان‌های دست‌به‌ماشه، منتظر شمارش معکوسند که ناگهان ترامپ بعد از یک لیوان نوشابه رژیمی گوشی را برمی‌دارد و می‌نویسد: «بچه‌ها کنسل شد! محمد و تمیم زنگ زدند، خیلی باادب بودند، فعلاً نزنید؛ ولی پوتین‌ها را درنیاورید که شاید نیم‌ساعت دیگر نظرم عوض شد!» این وسط، ۸۵ میلیون ایرانی که سال‌هاست با فرمول «دلار، سکه، سایه جنگ» زندگی می‌کنند، گوشت قربانی این مودی املاکی هستند؛ مردمی که باید هر ثانیه صفحه ترامپ را رفرش کنند تا ببینند فردا قرار است بروند سر کار یا بروند پناهگاه! دیپلماسی او دقیقاً شبیه تعارف‌های شاه‌عباسی شده؛ ملت را تا دقیقه ۹۹ به لبه نابودی می‌برد، سکته چشمی و قلبی را به بالاترین حد می‌رساند، بازار بورس و نفت را ویبره می‌دهد، و بعد در نقش منجی صلح‌طلب ظاهر می‌شود تا همه نفس راحت بکشند و بگویند «دمت گرم که امروز ما را نکشتی!» قضیه وقتی سیاه‌تر می‌شود که می‌بینی سرنوشت، آینده و حتی قیمت پیاز در ایران، به میزان کیفیت خوابِ دیشبِ یک پیرمرد مو نارنجی در فلوریدا گره خورده است؛ پیرمردی که مرز بین جنگ تمام‌عیار و صلح جهانی در ذهنش، به اندازه یک ویبره گوشی و یک توییت نصفه‌شبی فاصله دارد!
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341904
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341904_1779140564.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: Children at a nearby school are escorted out by police after an active shooter was reported at the Islamic Center of San Diego.
+
+2 teen suspects are dead from what appear to be self-inflicted gunshot wounds, according to police.
+
+Officials say at least 3 adult male victims were killed in the shooting.
+</div>
+
+## FoxNewsTwitter — post 341903
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341903_1779140566.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"I can tell you with 100% certainty the heroic actions of the responding officers and deputies is beyond words."
+
+San Diego Police Chief Scott Wahl praises the officers who responded to the deadly shooting at the county's largest Islamic center.
+
+"To know that this many of our public servants are willing to leave their loved ones behind, drop what they're doing, and run towards gunfire without asking any questions is remarkable."
+</div>
+
+## alonews — post 120976
+
+<div align="center">
+  <a href="telegram/content/alonews_120976_1779140569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما داشتیم آماده می‌شدیم که فردا یه حمله خیلی بزرگ و جدی انجام بدیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120975
+
+<div align="center">
+  <a href="telegram/content/alonews_120975_1779140571.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس جمهور ترامپ می گوید که قیمت داروها را 400 ٪ ، 500 ٪ ، 600 ٪ و حتی 700 ٪ کاهش داده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:02
 ---
 
