@@ -7,6 +7,310 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 01:42
+---
+
+## VahidOOnLine — post 240872
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️هاکان فیدان، وزیر امور خارجه ترکیه، در جریان نشست خبری مشترک با یوهان وادفول، وزیر امور خارجه آلمان گفت در پذیرش شرایط لازم مذاکرات هسته‌ای از طرف ایران، مشکل اصولی نمی‌بیند.
+فیدان تاکید کرد اختلاف‌ها بیشتر بر سر این است که تهران در مقابل توافق احتمالی چه امتیازهایی دریافت خواهد کرد، این امتیازها با چه ترتیبی ارائه می‌شوند و چه شرایطی همراه آن خواهد بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11611
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: «ما آماده می‌شدیم که فردا یک حمله بسیار بزرگ انجام دهیم. من فعلاً آن را برای مدتی به تعویق انداختم؛ امیدوارم شاید برای همیشه، اما ممکن است فقط برای مدت کوتاهی باشد، چون گفت‌وگوهای بسیار مهمی با ایران داشته‌ایم و باید ببینیم نتیجه آن‌ها چه خواهد شد.…
+</div>
+
+## mwarmonitor — post 9287
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9287_1779142335.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✈️🇵🇰 هواپیمای A319 نیروی هوایی پاکستان (A-1102) که وزیر کشور پاکستان را حمل می‌کرد – وی در یک سفر رسمی دو روزه برای بررسی روابط دوجانبه و گفت‌وگوها با آمریکا به سر می‌برد – از مشهد خارج شد. @mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 341905
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341905_1779142336.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump announces that more than 600 affordable generic drugs are being added to the administration’s prescription pricing website, TrumpRX.gov, expanding the catalog nearly sevenfold.
+
+Trump said many Americans don’t realize lower-cost generic options are available, despite having “the same dosage, the same effectiveness, and the same active ingredients” as brand-name drugs.
+
+“Today, they have something they’ve never had before.”
+</div>
+
+## pm_afshaa — post 91005
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91005_1779142338.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما به جمهوری اسلامی هیچ امتیازی نخواهیم داد، فقط تسلیم کامل!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91004
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91004_1779142338.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایران نهایتا 3 روز زمان داره. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91003
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91003_1779142339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ایران نهایتا 3 روز زمان داره. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91002
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91002_1779142339.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما حملات رو فقط برای 2-3 روز تعویق انداختیم تا ببینیم چه میشه! 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91001
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91001_1779142340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما در حال آماده شدن برای حمله گسترده به ایران در روز سه شنبه بودیم، اما من آن را برای یک دوره کوتاه و شاید برای همیشه، اما به احتمال زیاد برای یک دوره کوتاه به تعویق انداختم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91000
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91000_1779142340.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴دونالد ترامپ:
+به نظر میرسه شانس بسیار خوبی برای رسیدن به توافق وجود داره؛ اگر بتونیم بدون بمباران این کار رو انجام بدیم، خوشحال میشم.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90999
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90999_1779142341.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ: ما حملات رو فقط برای 2-3 روز تعویق انداختیم تا ببینیم چه میشه!
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## ManotoTV — post 105618
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105618_1779142342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیمی دایمن، مدیرعامل بانک جی‌پی مورگان چیس، در گفت‌وگو با ان‌پی‌آر هشدار داد تشدید جنگ میان آمریکا، اسرائیل و جمهوری اسلامی می‌تواند پیامدهای اقتصادی گسترده‌ای در جهان به همراه داشته باشد.
+
+دایمن گفت جمهوری اسلامی «۴۷ سال است مردم بی‌گناه، از جمله آمریکایی‌های بی‌گناه، را می‌کشد» و تاکید کرد نباید اجازه پیدا کند به توانایی هسته‌ای دست یابد.
+
+او افزود جمهوری اسلامی دارای موشک‌های بالستیک با برد سه هزار مایل است و «به‌وضوح» در تلاش برای توسعه توانایی هسته‌ای است.
+
+مدیرعامل جی‌پی مورگان در عین حال هشدار داد گسترش درگیری‌ها می‌تواند خطر رکود اقتصادی یا حتی «رکود تورمی» را افزایش دهد؛ وضعیتی که همزمان با رکود اقتصادی و افزایش تورم همراه است.
+
+او گفت هرچند هنوز مشخص نیست چنین سناریویی رخ خواهد داد یا نه، اما این بحران احتمال «پیامدهای بد اقتصادی» را افزایش می‌دهد و باید با نگاهی واقع‌بینانه به آن نگاه کرد.
+
+جی‌پی مورگان چیس بزرگ‌ترین بانک جهان از نظر ارزش بازار به شمار می‌رود و مجموع دارایی‌های آن از چهار تریلیون دلار فراتر رفته است.
+
+جیمی دایمن، مدیرعامل این بانک، از تاثیرگذارترین چهره‌های اقتصادی آمریکا محسوب می‌شود و سال‌ها از نظر مالی و سیاسی به حزب دموکرات گرایش داشته است.
+</div>
+
+## ManotoTV — post 105617
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105617_1779142342.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های روسیه اعلام کردند در حملات پهپادی روز گذشته اوکراین به اطراف مسکو و منطقه بلگورود، دست‌کم چهار نفر کشته شدند؛ حملاتی که به گفته رسانه‌های روسی، بزرگ‌ترین حمله پهپادی به مسکو در بیش از یک سال گذشته بوده است.
+
+بر اساس این گزارش، سه نفر در منطقه مسکو و یک نفر در منطقه بلگورود جان باختند.
+
+سفارت هند در روسیه اعلام کرد یکی از کشته‌شدگان یک شهروند هندی بوده و سه شهروند هندی دیگر نیز زخمی شده‌اند.
+
+خبرگزاری دولتی تاس به نقل از سرگئی سوبیانین، شهردار مسکو، گزارش داد پدافند هوایی روسیه از نیمه‌شب شنبه تا یکشنبه ۸۱ پهپاد را که به سمت مسکو در حرکت بودند، سرنگون کرده است.
+
+سوبیانین گفت ۱۲ نفر، عمدتا در نزدیکی ورودی پالایشگاه نفت مسکو، زخمی شده‌اند اما به گفته او «فناوری» پالایشگاه آسیب ندیده است.
+
+سرویس امنیتی اوکراین، اس‌بی‌یو، اعلام کرد ارتش این کشور یک پالایشگاه نفت و دو ایستگاه پمپاژ نفت در منطقه مسکو را هدف قرار داده است.
+
+ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، نیز این حملات را «کاملا موجه» توصیف کرد.
+
+وزارت دفاع روسیه اعلام کرد در مجموع ۵۵۶ پهپاد اوکراینی در جریان حملات شبانه و صبح یکشنبه سرنگون شده‌اند.
+
+در مقابل، نیروی هوایی اوکراین گفت روسیه شب گذشته با ۲۸۷ پهپاد به خاک اوکراین حمله کرده که ۲۷۹ فروند آن رهگیری یا مختل شده‌اند.
+</div>
+
+## manototv — post 105618
+
+<div align="center">
+  <a href="telegram/content/manototv_105618_1779142343.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جیمی دایمن، مدیرعامل بانک جی‌پی مورگان چیس، در گفت‌وگو با ان‌پی‌آر هشدار داد تشدید جنگ میان آمریکا، اسرائیل و جمهوری اسلامی می‌تواند پیامدهای اقتصادی گسترده‌ای در جهان به همراه داشته باشد.
+
+دایمن گفت جمهوری اسلامی «۴۷ سال است مردم بی‌گناه، از جمله آمریکایی‌های بی‌گناه، را می‌کشد» و تاکید کرد نباید اجازه پیدا کند به توانایی هسته‌ای دست یابد.
+
+او افزود جمهوری اسلامی دارای موشک‌های بالستیک با برد سه هزار مایل است و «به‌وضوح» در تلاش برای توسعه توانایی هسته‌ای است.
+
+مدیرعامل جی‌پی مورگان در عین حال هشدار داد گسترش درگیری‌ها می‌تواند خطر رکود اقتصادی یا حتی «رکود تورمی» را افزایش دهد؛ وضعیتی که همزمان با رکود اقتصادی و افزایش تورم همراه است.
+
+او گفت هرچند هنوز مشخص نیست چنین سناریویی رخ خواهد داد یا نه، اما این بحران احتمال «پیامدهای بد اقتصادی» را افزایش می‌دهد و باید با نگاهی واقع‌بینانه به آن نگاه کرد.
+
+جی‌پی مورگان چیس بزرگ‌ترین بانک جهان از نظر ارزش بازار به شمار می‌رود و مجموع دارایی‌های آن از چهار تریلیون دلار فراتر رفته است.
+
+جیمی دایمن، مدیرعامل این بانک، از تاثیرگذارترین چهره‌های اقتصادی آمریکا محسوب می‌شود و سال‌ها از نظر مالی و سیاسی به حزب دموکرات گرایش داشته است.
+</div>
+
+## manototv — post 105617
+
+<div align="center">
+  <a href="telegram/content/manototv_105617_1779142344.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مقام‌های روسیه اعلام کردند در حملات پهپادی روز گذشته اوکراین به اطراف مسکو و منطقه بلگورود، دست‌کم چهار نفر کشته شدند؛ حملاتی که به گفته رسانه‌های روسی، بزرگ‌ترین حمله پهپادی به مسکو در بیش از یک سال گذشته بوده است.
+
+بر اساس این گزارش، سه نفر در منطقه مسکو و یک نفر در منطقه بلگورود جان باختند.
+
+سفارت هند در روسیه اعلام کرد یکی از کشته‌شدگان یک شهروند هندی بوده و سه شهروند هندی دیگر نیز زخمی شده‌اند.
+
+خبرگزاری دولتی تاس به نقل از سرگئی سوبیانین، شهردار مسکو، گزارش داد پدافند هوایی روسیه از نیمه‌شب شنبه تا یکشنبه ۸۱ پهپاد را که به سمت مسکو در حرکت بودند، سرنگون کرده است.
+
+سوبیانین گفت ۱۲ نفر، عمدتا در نزدیکی ورودی پالایشگاه نفت مسکو، زخمی شده‌اند اما به گفته او «فناوری» پالایشگاه آسیب ندیده است.
+
+سرویس امنیتی اوکراین، اس‌بی‌یو، اعلام کرد ارتش این کشور یک پالایشگاه نفت و دو ایستگاه پمپاژ نفت در منطقه مسکو را هدف قرار داده است.
+
+ولودیمیر زلنسکی، رئیس‌جمهوری اوکراین، نیز این حملات را «کاملا موجه» توصیف کرد.
+
+وزارت دفاع روسیه اعلام کرد در مجموع ۵۵۶ پهپاد اوکراینی در جریان حملات شبانه و صبح یکشنبه سرنگون شده‌اند.
+
+در مقابل، نیروی هوایی اوکراین گفت روسیه شب گذشته با ۲۸۷ پهپاد به خاک اوکراین حمله کرده که ۲۷۹ فروند آن رهگیری یا مختل شده‌اند.
+</div>
+
+## alonews — post 120990
+
+<div align="center">
+  <img src="telegram/content/alonews_120990_1779142345.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت استثنایی گیگی
+9️⃣
+8️⃣
+1️⃣
+
+تحویل زیر یک دقیقه
+✅
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+
+💤این تخفیف فقط تا ۱۲ ظهر فعاله
+💤
+
+
+
+⭐️ @Napsternetiran_bot
+〰️〰️〰️〰️〰️〰️〰️
+
+
+🔶 @Napsternetvirani
+</div>
+
+## alonews — post 120989
+
+<div align="center">
+  <a href="telegram/content/alonews_120989_1779142346.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: اسرائیل را از تصمیم برای به تأخیر انداختن حمله به ایران مطلع کردم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 120988
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ سه روز بعد : بخاطر روی گل افغانستان یه ماه مهلت میدم [@AloTweet]
+</div>
+
+## alonews — post 120987
+
+<div align="center">
+  <a href="telegram/content/alonews_120987_1779142346.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: ایران نهایتا ۳روز زمان داره
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 01:32
 ---
 
