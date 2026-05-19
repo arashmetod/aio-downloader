@@ -7,6 +7,275 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 16:12
+---
+
+## VahidOOnLine — post 240953
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240953_1779194568.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیران دارایی کشورهای عضو گروه ۷ که در پاریس گرد هم آمده‌اند، با انتشار بیانیه‌ای مشترک بر ضرورت بازگشایی تنگه هرمز تاکید کردند.
+
+آن‌ها همچنین بار دیگر بر تعهد خود به همکاری‌های چندجانبه برای مقابله با ریسک‌های پیش‌روی اقتصاد جهانی تاکید کردند.
+
+وزیران دارایی کانادا، فرانسه، آلمان، ایتالیا، ژاپن، بریتانیا و ایالات متحده اعلام کردند به حفظ ثبات بازارهای انرژی پایبند هستند و از تمامی کشورها خواستند از اعمال محدودیت‌های خودسرانه بر صادرات خودداری کنند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11653
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک منبع آمریکایی به الجزیره:
+
+بحث امنیتی که برای امروز در کاخ سفید درباره ایران برنامه‌ریزی شده بود، پس از اعلام ترامپ مبنی بر تعویق حمله برنامه‌ریزی شده، به تعویق افتاد
+@withyashar
+</div>
+
+## WithYashar — post 11652
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+زلزله لرستان 4.6 ریشتر
+@withyashar
+</div>
+
+## WithYashar — post 11651
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس روس اتم: قادریم برنامه بازگرداندن کارکنان نیروگاه بوشهر را اجرایی کنیم
+@withyashar
+</div>
+
+## WithYashar — post 11650
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان عفو بین‌الملل اعلام کرد تعداد اعدام‌ها در جهان طی سال 2025 به بالاترین سطح در 44 سال گذشته رسیده.
+
+طبق این گزارش، جمهوری اسلامی اصلی‌ترین عامل افزایش آمار اعدام‌ها در جهان بوده.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 341923
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_341923_1779194569.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“We’re very much trying to run an NFL model.”
+
+Bill Belichick explains on "Hang Out With Sean Hannity" why he left the NFL for North Carolina, saying he always wanted to coach in college but never had the opportunity until UNC came calling.
+
+Belichick says the program is being rebuilt with a pro-style structure — complete with a general manager, scouting department, player development system, strength program, and recruiting operation modeled after the NFL.
+
+At one point, he says the goal is bigger than just wins: helping players develop into future NFL talent while turning UNC into what many fans believe it “should be” as a football program.
+
+You can watch the full interview Tuesday at 10am eastern. | @seanhannity
+</div>
+
+## pm_afshaa — post 91027
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91027_1779194572.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سازمان عفو بین‌الملل اعلام کرد تعداد اعدام‌ها در جهان طی سال 2025 به بالاترین سطح در 44 سال گذشته رسیده.
+
+طبق این گزارش، جمهوری اسلامی اصلی‌ترین عامل افزایش آمار اعدام‌ها در جهان بوده.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337925
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337925_1779194572.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻تصویر رسیده به ایران اینترنشنال نشان می‌دهد یکی از هواداران آرسنال در بازی شب گذشته این تیم برابر برنلی، آخرین بازی خانگی توپچی‌ها در این فصل، تصویری از جاویدنام عارف جعفرزاده، هوادار سرسخت تیم فوتبال آرسنال، را که در جریان انقلاب ملی ایرانیان علیه جمهوری اسلامی کشته شد، به دست گرفته است.
+
+🔹پیش‌تر تصاویری منتشر شده بود که نشان می‌داد لوگوی باشگاه آرسنال روی سنگ مزار او حک شده است.
+
+🔹جاویدنام عارف جعفرزاده، ۳۴ ساله و اهل رشت، شامگاه ۱۸ دی ۱۴۰۴ در جریان اعتراضات مردمی هدف شلیک مستقیم گلوله به سر قرار گرفت و جان باخت.
+
+🔹کشته شدن این هوادار آرسنال در فضای هواداری این باشگاه در انگلستان بازتاب گسترده‌ای داشت. نورت‌بنکسی، هنرمند مشهور انگلیسی، گرافیتی جاویدنام جعفرزاده را در «تونل نورت‌بنکسی» در ورودی‌ استادیوم امارات نقاشی کرد.
+
+@iranintltvsport
+</div>
+
+## IranIntlTV — post 337924
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_337924_1779194573.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزیران دارایی کشورهای عضو گروه ۷ که در پاریس گرد هم آمده‌اند، با انتشار بیانیه‌ای مشترک بر ضرورت بازگشایی تنگه هرمز تاکید کردند.
+
+آن‌ها همچنین بار دیگر بر تعهد خود به همکاری‌های چندجانبه برای مقابله با ریسک‌های پیش‌روی اقتصاد جهانی تاکید کردند.
+
+وزیران دارایی کانادا، فرانسه، آلمان، ایتالیا، ژاپن، بریتانیا و ایالات متحده اعلام کردند به حفظ ثبات بازارهای انرژی پایبند هستند و از تمامی کشورها خواستند از اعمال محدودیت‌های خودسرانه بر صادرات خودداری کنند.
+https://iranintl.com/202605194425
+</div>
+
+## Persian_Trend_Official — post 14478
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14478_1779194574.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کسی می‌دونه سردار سلامی کجاست؟؟؟
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20387
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان عفو بین‌الملل اعلام کرد تعداد اعدام‌ها در جهان طی سال 2025 به بالاترین سطح در 44 سال گذشته رسیده.
+
+طبق این گزارش، جمهوری اسلامی اصلی‌ترین عامل افزایش آمار اعدام‌ها در جهان بوده.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20386
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 وال استریت ژورنال : ترامپ گفت حمله برنامه‌ریزی‌شده به ایران را متوقف کرده چون رهبران کشورهای خلیج فارس خواستند زمان بیشتری برای مذاکرات بدهند تا شاید به توافق برسند. او دستور داده ارتش آماده باشد ولی فعلاً حمله انجام نشود. چند مقام خلیج فارس بعد این…
+</div>
+
+## BBCPersian — post 281495
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281495_1779194575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یوروپل، «آژانس اتحادیه اروپا برای همکاری در اجرای قانون»، می‌گوید در اقدامی هماهنگ برای مقابله با «محتوای تروریستی آنلاین»، ۱۴۲۰۰ پست مرتبط با سپاه پاسداران را در فضای مجازی هدف قرار داده است.
+
+اتحادیه اروپا سپاه پاسداران را در ۱۹ فوریه ۲۰۲۶ سازمانی تروریستی معرفی کرد؛ این طبقه‌بندی به مجریان قانون اجازه می‌دهد تا علیه فعالیت‌های اعضای سپاه و نهادهای حامی آن در اتحادیه اروپا اقدام کنند.
+
+یوروپل می‌گوید که اقداماتش بر شناسایی و مختل کردن حضور آنلاین گروه‌های مرتبط با سپاه پاسداران متمرکز بوده است که برای انتشار تبلیغات، جذب هواداران و جمع‌آوری کمک‌های مالی مورد استفاده قرار می‌گرفتند.
+
+۱۸ کشور اروپایی و آمریکا در این اقدامات هماهنگ شرکت داشتند.
+
+یوروپل می‌گوید که محتواهای تولید شده مرتبط با سپاه پاسداران، به چندین زبان از جمله عربی، اندونزیایی، انگلیسی، فرانسوی، فارسی و اسپانیایی شناسایی شده است.
+
+📸GettyImages
+
+https://bbc.in/3PydzJU
+@BBCPersian
+</div>
+
+## BBCPersian — post 281490
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸باشگاه منچستر سیتی خودش را برای جدایی از پپ گواردیولا، مردی که پرافتخارترین دوران این باشگاه را رقم زد، پس از بازی روز یکشنبه لیگ برتر مقابل استون ویلا آماده می‌کند.
+
+انتظار می‌رود که این سرمربی بزرگ در پایان فصل، ورزشگاه اتحاد را ترک کند و آن طور که گفته می‌شود انزو مارسکا، سرمربی پیشین چلسی، جای او را می‌گیرد. این مربی ۵۵ ساله سابقه دستیاری گواردیولا در سیتی را نیز دارد.
+
+مدیران سیتی قبلا گفته بودند که گواردیولا برای فصل آینده قرارداد دارد و امیدوارند در سمتش باقی بماند ولی با توجه به اخبار باشگاه حالا این جدایی قطعی است و گفته می‌شود که بازیکنان هم آماده خداحافظی با این سرمربی اسپانیایی در آخرین بازی فصل مقابل استون ویلا شده‌اند.
+
+همزمان باشگاه تمرکز خود را روی یافتن بهترین راه برای تجلیل از دوران حضور این سرمربی نمادین گذاشته است. گفته می‌شود نامگذاری جایگاه شمالی تازه توسعه‌یافته به نام این سرمربی یکی از گزینه‌های مدنظر باشگاه است.
+
+
+مطلب کامل:
+https://bbc.in/42JXp31
+📷Getty
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389741
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرگزاری ایرنا گزارشی به نام «مهر مادری به عمر چهل روز» منتشر کرده، درباره زنی که کودکی رها شده در دوران جنگ را به فرزندی پذیرفته.
+
+گزارش شامل مجموعه‌ عکسی از سارا کنعانی و فرزندش است و عکس‌هایی در خانه به تصویر کشیده شده، برخلاف فضاهای عمومی، سارا حجاب ندارد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389738
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴‌حالتون از این همه تناقض و دورویی بهم نمی‌خوره؟
+
+دیروز هتل تاریخی عامری‌ها کاشان را به‌خاطر «حجاب» پلمب کردند؛ مسافران سرگردان شدند و ۹۰ نفر از پرسنل بیکار!
+
+‏اما همزمان، شب‌ها در میدان‌ها و مراسم‌هایی مثل #جان_فدا⁩، شعار «بی‌حجاب هم خواهر ماست» تکرار می‌شود و همان زنان با آزادترین پوشش در قاب رسمی دیده می‌شوند.
+
+‏اگر حجاب قانون است، چرا اجرای آن این‌قدر مقطعی و گزینشی است؟ #یاشارسلطانی
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 121089
+
+<div align="center">
+  <a href="telegram/content/alonews_121089_1779194575.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس مرکز ملی فضای مجازی: در ایام جنگ روزانه ۱۰۰ حملۀ سایبری به کشور می‌شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121088
+
+<div align="center">
+  <a href="telegram/content/alonews_121088_1779194576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر فرهنگ اسرائیل، میکی زوهار:
+کمپین هنوز تمام نشده است. ما هنوز در میانه آن هستیم.
+
+
+🔴دو روز پیش با نتانیاهو ملاقات کردم و از او پرسیدم: «چرا هنوز به پیروزی نرسیده‌ایم؟» به او گفتم که این چیزی است که شهروندان اسرائیلی می‌گویند.
+
+
+🔴و پاسخ او این بود: «ما به آن دست خواهیم یافت.»
+
+
+🔴ما تهدید هسته‌ای ایران را از بین خواهیم برد. ما حزب‌الله را شکست خواهیم داد و حماس را نیز شکست خواهیم داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121087
+
+<div align="center">
+  <a href="telegram/content/alonews_121087_1779194578.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رئیس روس اتم: قادریم برنامه بازگرداندن کارکنان نیروگاه بوشهر را اجرایی کنیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 16:02
 ---
 
