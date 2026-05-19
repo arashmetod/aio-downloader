@@ -7,6 +7,172 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/29 16:02
+---
+
+## VahidOOnLine — post 240952
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_240952_1779193952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️روزنامه همشهری گزارش داد زمین‌لرزه‌ای به بزرگی ۴.۶، روز سه‌شنبه ۲۹ اردیبهشت‌ماه نورآباد در استان لرستان را لرزاند.
+بر اساس این گزارش، این زمین‌لرزه دقایقی پیش رخ داده و هنوز جزییاتی درباره خسارات احتمالی یا تلفات آن منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11649
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز: پیشنهاد جدید ایران به آمریکا برای پایان درگیری‌ها :
+
+- عقب نشینی نیروهای آمریکایی از منطقه
+- پرداخت غرامت توسط آمریکا
+- رفع تحریم‌ها
+- آزادسازی اموال بلوکه شده توسط آمریکا
+- پایان محاصره آمریکا علیه بنادر
+@withyashar
+</div>
+
+## WithYashar — post 11648
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+معاون امنیتی استان خوزستان :
+
+امروز داشتیم پدافند هامونو تست میکردیم که به اشتباه یکی از پرتابه ها خورد به یک ساختمون مسکونی و چندین نفر زخمی شدن.
+@withyashar
+</div>
+
+## pm_afshaa — post 91026
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91026_1779193952.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رویترز: پیشنهاد جدید ایران به آمریکا برای پایان درگیری‌ها :
+
+- عقب نشینی نیروهای آمریکایی از منطقه
+- پرداخت غرامت توسط آمریکا
+- رفع تحریم‌ها
+- آزادسازی اموال بلوکه شده توسط آمریکا
+- پایان محاصره آمریکا علیه بنادر
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91025
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تایمز انگلیس: اگه تنگه هرمز بسته بمونه، دنیا خیلی سریع داره میره سمت یه بحران جهانی غذا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 337923
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/337923" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار نیم‌روزی | سه‌شنبه ۲۹ اردیبهشت
+@iranintlTV
+</div>
+
+## Shin_Persian — post 6085
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6085_1779193953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian Tue, 19 May 2026 11:20:57 UTC The military says it struck over 25 Hezbollah targets in southern Lebanon in the past day. The targets included weapon depots, command centers, rocket launchers used in previous attacks…
+</div>
+
+## Shin_Persian — post 6084
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Emanuel (Mannie) Fabian ✓ @manniefabian
+Tue, 19 May 2026 11:20:57 UTC
+
+The military says it struck over 25 Hezbollah targets in southern Lebanon in the past day.
+
+The targets included weapon depots, command centers, rocket launchers used in previous attacks, and other infrastructure used by the terror group to advance attacks, according to the IDF.
+
+The IDF says it also struck Hezbollah operatives in the Cristofani Ridge area, located several kilometers north of Mount Hermon.
+
+فارسی
+
+ارتش اعلام کرد که در شبانه‌روز گذشته بیش از ۲۵ هدف حزب‌الله در جنوب لبنان را مورد حمله قرار داده است.
+
+به گفته ارتش دفاعی اسرائیل (IDF)، این اهداف شامل انبارهای سلاح، مراکز فرماندهی، سکوهای پرتاب راکت مورد استفاده در حملات قبلی و سایر زیرساخت‌هایی بود که این گروه تروریستی برای پیشبرد حملات استفاده می‌کرد.
+
+ارتش دفاعی اسرائیل همچنین اعلام کرد که نیروهای عملیاتی حزب‌الله را در منطقه خط‌الرأس کریستوفانی، واقع در چند کیلومتری شمال کوه حرمون، هدف قرار داده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14477
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 این انفجار در نزدیکی یکی از ساختمانهای وابسته به وزارت دفاع دولت «الجولانی» رخ داده است ▪️ منابع محلی گفتند پس از انفجار، صدای تیراندازی همچنان به گوش می‌رسد. 🫆:Tony 📌 @persian_trend_official پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14476
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14476_1779193955.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️تعلیق پروازهای بریتیش ایرویز به اسرائیل
+
+💢خطوط هوایی «بریتیش ایرویز» از لغو پروازها به اسرائیل تا یک اوت خبر داد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20385
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴خبرگزاری مهر:
+
+زمین‌لرزه به شدت ۴.۶ ریشتر ، استان لرستان را لرزاند.
+
+@IranianMinds
+</div>
+
+## alonews — post 121086
+
+<div align="center">
+  <a href="telegram/content/alonews_121086_1779193955.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر فرهنگ اسرائیل میکی زوهار:
+مسیحا چیز خوبی است.
+
+
+🔴این چیزی است که همه ما می‌خواهیم هر چه زودتر بیاید. حتی رئیس ستاد، فکر می‌کنم، می‌خواهد مسیحا بیاید
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/29 15:52
 ---
 
