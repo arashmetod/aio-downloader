@@ -7,6 +7,106 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/30 15:53
+---
+
+## WithYashar — post 11749
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه: آمریکا به پاکستان اطلاع داده که در موضوع هسته‌ای و تنگه هرمز هیچ امتیازی نخواهد داد.
+@withyashar
+</div>
+
+## pm_afshaa — post 91102
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91102_1779279793.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴العربیه: آمریکا به پاکستان اطلاع داده که در موضوع هسته‌ای و تنگه هرمز هیچ امتیازی نخواهد داد.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## RadioFarda — post 157385
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157385_1779279793.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## IranianMinds — post 20432
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20432_1779279794.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴عکس ترامپ روی بیلبورد در اسرائیل:
+
+کار را تمام کن.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281609
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻چین و روسیه اختلال در زنجیره تامین و تجارت جهانی را محکوم کردند
+
+🔻چین و روسیه در بخش دیگری از بیانیه مشترکی که از سوی کرملین منتشر شد، از کشورها خواستند به‌صورت «یک‌جانبه» در تجارت بین‌المللی و زنجیره‌های تامین دخالت نکنند؛ اظهاراتی که به نظر می‌رسد اشاره‌ای به بسته شدن تنگه هرمز باشد.
+
+در این بیانیه آمده است: «دو طرف با نگرانی یادآور می‌شوند که اقدامات یک‌جانبه برخی کشورها، اتحادیه‌های بین‌دولتی و متحدان آن‌ها که مانع کشتیرانی بین‌المللی می‌شود، تمامیت زنجیره‌های تامین جهانی و تجارت دریایی را به طور کلی تهدید می‌کند.»
+
+در این بیانیه نامی از تنگه هرمز برده نشده، اما در ادامه تاکید شده است که همکاری در زیرساخت‌های دریایی، از جمله بنادر، باید بر پایه اصول بازار و ملاحظات تجاری باشد تا از سیاسی شدن و تمرکز بیش از حد بر مسائل امنیتی جلوگیری شود.
+
+https://bbc.in/4ulwfeR
+@BBCPersian
+</div>
+
+## alonews — post 121290
+
+<div align="center">
+  <a href="telegram/content/alonews_121290_1779279796.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 عقاب‌های دفاعی جمهوری‌خواه در حال بحث درباره راه‌هایی برای مقابله با خروج برنامه‌ریزی‌شده نیروهای نظامی پنتاگون از آلمان هستند، طبق گزارش NOTUS.
+
+
+🔴 قانون‌گذاران در حال بررسی درج مقرراتی در قوانین آینده مربوط به بودجه و سیاست‌های دفاعی هستند که می‌تواند تأمین مالی کاهش نیروها را مسدود کند یا نیاز به بازگشت تغییرات اخیر در استقرار نیروها را ایجاد نماید.
+
+
+🔴 گزینه دیگری که در حال بحث است، اعمال تعلیق بر نامزدهای وزارت جنگ است که نیاز به تأیید سنا دارند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121289
+
+<div align="center">
+  <a href="telegram/content/alonews_121289_1779279796.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈منابع دیپلماتیک به سی‌بی‌اس نیوز گفتند که سفر وزیر کشور پاکستان به تهران بخشی از تلاشهای فشرده اسلام‌آباد برای میانجیگری برای توافق صلح با افزایش تنش بین آمریکا و ایران است.
+
+
+🔴یک دیپلمات ارشد پاکستانی گفت پاکستان برای یافتن راه‌حل، تلاش‌های خود را دوچندان کرده است
+
+
+🔴او افزود: اسلام‌آباد کلافگی‌ها را درک می‌کند، «اما از سرگیری جنگ برای همه یک فاجعه کامل خواهد بود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/30 15:44
 ---
 
