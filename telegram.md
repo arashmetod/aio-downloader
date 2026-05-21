@@ -7,6 +7,94 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 00:33
+---
+
+## WithYashar — post 11884
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دروووود
+
+ویست راجب سلطنت طلبی انقد خوب بود عشق کردم سلطان
+گذاشتم با صدا بلند تو خونه همه گوش کردیم
+
+جاوید شاه تا ابد من از وقتی که بدنیا اومدم عاشق شاهنشاه بودم از بچگی هیچوقت دنبال این بی بته ها و بی ریشه ها نبودیم و تا اخرین نفس ازشون متنفر میمونیم.
+</div>
+
+## WithYashar — post 11883
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+درود به شرفت مرد
+حرف دلمونو زدی ❤️🔥
+</div>
+
+## WithYashar — post 11882
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خیلی حال کردم با دایرکتها ، حال اتاق جنگ ندارم ولی اینجا ویس میدم تحلیل رو
+</div>
+
+## DEJradio — post 4830
+
+<div align="center">
+  <a href="telegram/content/DEJradio_4830_1779397433.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺🎥 شعار شهروندان: اتحاد برای ایران
+
+#اتحاد #ایران
+@DEJradio
+</div>
+
+## FarsiVOA — post 218332
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺خطوط قرمز آمریکا از دید لیندزی گراهام: عدم غنی‌سازی و قطع حمایت جمهوری اسلامی از گروه‌های نیابتی
+
+▪️لیندزی گراهام، سناتور جمهوری‌خواه آمریکایی روز پنج‌شنبه ۳۱ اردیبهشت، با اشاره به سخنان رئیس‌جمهوری آمریکا، دونالد ترامپ، در این روز گفت که او « بار دیگر امروز قاطعانه و بدون ابهام اعلام کرد که به [جمهوری اسلامی] ایران اجازه داده نخواهد شد بیش از ۹۰۰ پوند اورانیوم با غنای بالا نگه دارد.»
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8152498.html
+@FarsiVOA
+</div>
+
+## alonews — post 121670
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: احمد وحیدی، فرمانده سپاه پاسداران، به یکی از چهره‌های اصلی در مذاکرات تبدیل شده
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121669
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیروهای پشتیبانی سریع تحت حمایت امارات متحده عربی فیلمی منتشر کردند که حمله پهپادی به یک سامانه هیسار-آ ساخت ترکیه که توسط نیروهای مسلح سودان در نزدیکی منطقه راهید النوبا در شمال کردفان عملیاتی شده بود را نشان می‌دهد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121668
+
+<div align="center">
+  <img src="telegram/content/alonews_121668_1779397435.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈دیواری به افتخار رئیس‌جمهور ترامپ، معاون رئیس‌جمهور جی‌دی ونس، و وزیر امور خارجه مارکو روبیو در کنسولگری جدید آمریکا در نوک، گرینلند نصب شده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 00:20
 ---
 
