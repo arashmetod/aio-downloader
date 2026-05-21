@@ -7,6 +7,139 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 22:04
+---
+
+## VahidOOnLine — post 241382
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241382_1779388456.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️شهرهای چین شروع به استقرار کیوسک‌های آرایشگری رباتیک مجهز به هوش مصنوعی کرده‌اند که با استفاده از فناوری سه‌بعدی، مشتریان را اسکن کرده و مو را با دقت میلی‌متری و با هزینه‌ای ۵۰ هزار تومان کوتاه می‌کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241381
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241381_1779388459.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️بارش شدید باران و وقوع طوفان‌های سهمگین در شهر نیویورک، منجر به جاری شدن سیلاب‌های ناگهانی و شدید شد؛ وضعیتی که رانندگان گرفتار در سیل را مجبور کرد برای نجات خود به سقف خودروها پناه ببرند.
+
+تصاویر و ویدیوهای منتشر شده از وضعیت اواخر وقت چهارشنبه، ۳۰ اردیبهشت، حجم عظیمی از باران و وزش بادهایی با سرعت ۶۰ مایل بر ساعت (حدود ۹۶ کیلومتر بر ساعت) را نشان می‌دهند که عابران پیاده را با خود می‌برد و خودروها را در آب غوطه‌ور می‌کند.
+
+اگرچه هشدار طوفان در سراسر نیویورک صادر شده بود، اما منطقه «کوئینز» بیشترین آسیب را دید؛ به طوری که به گزارش کریستوفر تیت، کارشناس هواشناسی شبکه فاکس‌ودر، ۲.۵۷ اینچ (بیش از ۶۵ میلی‌متر) باران در محله بلروز ثبت شده است. این سیلاب همچنین باعث اختلال در حرکت چندین خط مترو شد و سردرگمی و مشکلات مسافران را دوچندان کرد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241380
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241380_1779388462.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از استرالیا:
+«از جاویدنام جواد صفریان گفت…
+جوان ۱۹ ساله‌ای از مشهد که به گفته نزدیکانش، هنگام بازگشت از سر کار هدف گلوله قرار گرفت.
+می‌گفت اسمش خیلی کم شنیده شده و خانواده‌اش فقط می‌خواهند نام او فراموش نشود.»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11868
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🚨🚨🚨🚨🚨🚨
+
+منبع ایرانی نزدیک به تیم مذاکره‌کننده:
+اصرار آمریکا بر مذاکرات هسته‌ای باعث بن‌بست در گفتگوها شده است،
+تهران تمایل کمی به ادامه مذاکرات نشان می‌دهد،
+احتمال شروع درگیری در هر لحظه وجود دارد.
+@withyashar
+</div>
+
+## mwarmonitor — post 9437
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸محمد مرندی: «درباره اورانیوم غنی‌شده ایران هیچ چیز جدیدی گفته نشده است. همان‌طور که بارها گفته شده، در این مرحله از مذاکرات، جمهوری اسلامی برنامه هسته‌ای خود را مورد بحث قرار نخواهد داد.»
+
+@mwarmonitor
+</div>
+
+## ManotoTV — post 105727
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105727_1779388465.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از استرالیا:
+«از جاویدنام جواد صفریان گفت…
+جوان ۱۹ ساله‌ای از مشهد که به گفته نزدیکانش، هنگام بازگشت از سر کار هدف گلوله قرار گرفت.
+می‌گفت اسمش خیلی کم شنیده شده و خانواده‌اش فقط می‌خواهند نام او فراموش نشود.»
+</div>
+
+## RadioFarda — post 157435
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157435" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: ایستگاه ۱۹ با رادیوفردا،۳۱ اردیبهشت ۱۴۰۵
+
+@RadioFarda
+</div>
+
+## manototv — post 105727
+
+<div align="center">
+  <a href="telegram/content/manototv_105727_1779388468.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از استرالیا:
+«از جاویدنام جواد صفریان گفت…
+جوان ۱۹ ساله‌ای از مشهد که به گفته نزدیکانش، هنگام بازگشت از سر کار هدف گلوله قرار گرفت.
+می‌گفت اسمش خیلی کم شنیده شده و خانواده‌اش فقط می‌خواهند نام او فراموش نشود.»
+</div>
+
+## alonews — post 121637
+
+<div align="center">
+  <a href="telegram/content/alonews_121637_1779388471.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 رئیس‌جمهور ترامپ امضای یک فرمان اجرایی که شرکت‌های هوش مصنوعی را ملزم به اشتراک‌گذاری مدل‌های پیشرفته خود با دولت فدرال برای بررسی می‌کرد، به تعویق انداخت و با استناد به گزارش‌های وال‌استریت ژورنال، نگرانی‌هایی را مطرح کرد که این اقدام ممکن است در رقابت ایالات متحده با چین در زمینه هوش مصنوعی به کندی منجر شود.
+
+
+🔴 این فرمان نظارت دولت بر صنعت هوش مصنوعی را گسترش می‌داد، اما ترامپ به خبرنگاران گفت که نمی‌خواهد چیزی را تأیید کند که در مسیر حفظ رهبری ایالات متحده در توسعه هوش مصنوعی «ممانعت ایجاد کند».
+
+
+🔴کاخ سفید به مدیران اجرایی فناوری اطلاع داد که مراسم امضا مجدداً زمان‌بندی خواهد شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121636
+
+<div align="center">
+  <a href="telegram/content/alonews_121636_1779388471.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈واشنگتن‌پست: آمریکا نیمی از ذخیره موشک‌های «تاد» را در جریان جنگ علیه ایران مصرف کرد 
+🔴آمریکا برای دفاع از اسرائیل بیش از ۲۰۰ موشک سامانه «تاد» شلیک کرده است. 
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 21:53
 ---
 
