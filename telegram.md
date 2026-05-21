@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/01 00:43
+---
+
+## WithYashar — post 11885
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+@withyashar eXtrime weekend
+</div>
+
+## FoxNewsTwitter — post 342077
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+The Graham Platner controversy continues to be a major headache for Democrats.
+
+Ahead of Memorial Day weekend, Platner is facing backlash over posts mocking U.S. troops, along with a resurfaced interview in which he suggested decorated Navy SEAL Chris Kyle killed civilians to inflate his combat record.
+
+Thousands of additional posts tied to the far-left Democrat also include racial remarks, anti-gay slurs, and attacks on veterans and rural Americans.
+
+Platner remains on the campaign trail, but as more voters uncover the posts, the fallout surrounding his Senate bid continues to grow, with Democrats already beginning to distance themselves from their previous support and endorsements.
+
+@willcain breaks down the vulgar attacks Platner has launched against U.S. troops and American patriots.
+
+@WillCainShow
+</div>
+
+## pm_afshaa — post 91180
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+به عبارتی هر گیگ فقط 107 هزارتومن
+👍
+
+
+🚀@LexVipBot
+</div>
+
+## Shin_Persian — post 6127
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Thu, 21 May 2026 21:06:34 UTC
+
+Jet activity over Mosul, #KRI, #Iraq 🇮🇶
+
+فارسی
+
+فعالیت جنگنده‌ها بر فراز موصل، #اقلیم_کردستان، #عراق 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## Persian_Trend_Official — post 14642
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14642" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو امشب پنجشنبه ۳۱ اردیبهشت
+نسخه کم حجم ۶.۷ مگابایت
+
+اخبار ضد و نقیض از توافق ایران و آمریکا
+
+🫆SJ
+
+@persian_trend_official
+</div>
+
+## alonews — post 121672
+
+<div align="center">
+  <a href="telegram/content/alonews_121672_1779398004.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈معاون رئیس دفتر کاخ سفید در امور سیاست، استیون میلر: تقسیم سیاسی اصلی در آمریکا امروز بین دیدگاهی از آمریکا به عنوان یک کشور جهان اول و دیدگاهی از آمریکا به عنوان یک کشور جهان سوم است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121671
+
+<div align="center">
+  <a href="telegram/content/alonews_121671_1779398005.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مخبر : اروپایی‌ها چپو راست برای عبور از تنگه هرمز به ما پیام میدن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/01 00:33
 ---
 
