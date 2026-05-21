@@ -7,6 +7,304 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 20:43
+---
+
+## VahidOOnLine — post 241368
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، روز پنجشنبه ۳۱ اردیبهشت در جریان گفتگو با خبرنگاران در دفتر بیضی کاخ سفید با تاکید بر اینکه واشنگتن تحت هیچ شرایطی اجازه دستیابی ایران به سلاح هسته‌ای را نخواهد داد، هشدار داد که چنین رویدادی جهان را به سمت یک فاجعه اتمی سوق می‌دهد.
+
+او با انتقاد از پوشش رسانه‌ای مواضعش افزود: «مسئله اصلی، هسته‌ای شدن کشوری است که برخی آن را تا حدی دیوانه می‌دانند. اگر ایران به سلاح هسته‌ای برسد، یک جنگ هسته‌ای در خاورمیانه رخ خواهد داد که دامنه آن به اروپا و آمریکا نیز کشیده می‌شود.»
+
+ترامپ با اشاره به مذاکرات جاری گفت: «ما در حال مذاکره هستیم و به هر طریقی اورانیوم با غنی‌سازی بالا را از ایران تحویل خواهیم گرفت. ما این اورانیوم را نمی‌خواهیم و احتمالا پس از تحویل، آن را نابود می‌کنیم، اما اجازه نمی‌دهیم دست آن‌ها باقی بماند.»
+
+رئیس‌جمهوری آمریکا در پایان با حیاتی خواندن این موضوع تاکید کرد که جلوگیری از هسته‌ای شدن ایران، مهم‌ترین مسئله پیش‌روی دولت اوست و مانع وقوع آن خواهد شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241367
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241367_1779383609.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر کمیسر عالی حقوق بشر سازمان ملل اعلام کرد ولکر تورک، کمیسر عالی حقوق بشر این نهاد، اعدام دو نفر دیگر در ایران را محکوم کرد.
+بر اساس گزارش این دفتر، تورک گفته مقام‌های جمهوری اسلامی از جنگ با آمریکا و اسرائیل به‌عنوان بهانه‌ای برای تشدید سرکوب داخلی استفاده می‌کنند.
+
+خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، گزارش داد رامین زله و کریم معروف‌پور، دو زندانی سیاسی بامداد پنج‌شنبه ۳۱ اردیبهشت اعدام شدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241366
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241366_1779383610.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال می‌گوید که بین مردم و حکومت دریایی از خون فاصله است و ترامپ نباید با جمهوری اسلامی مذاکره کند. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 11859
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ : پس از پایان جنگ با ایران، قیمت بنزین در آمریکا به سطح ۱.۸۵ دلار سقوط خواهد کرد
+
+«این وضعیت خیلی زود، خیلی زود تمام خواهد شد. و وقتی تمام شود، قیمت بنزین شما پایین‌تر از قبل خواهد آمد. می‌دانید، چند ماه پیش از آیووا رفتم و قیمت بنزین ۱.۸۵ دلار در هر گالن بود.»
+
+«و ما دوباره به چنین ارقامی خواهیم رسید. اما به‌هرحال به شکلی بسیار بهتر به آن خواهیم رسید. ما به آن اعداد برمی‌گردیم و در عین حال کشوری خواهیم داشت که سلاح هسته‌ای نخواهد داشت!
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342064
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342064_1779383611.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"Eat, drink and be merry today because your days of frolicking and freedom are numbered."
+
+Assistant AG for Fraud Enforcement delivers a blistering warning to fraudsters tied to alleged Minnesota schemes worth millions
+
+"We are doing everything we can to find you. And when we do, we will prosecute you.
+
+"We will claw back every dollar you have stolen from the American people."
+
+"We will not rest until every fraudster knows that the cost of stealing from the American people is far higher than any scheme is worth."
+</div>
+
+## FoxNewsTwitter — post 342063
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342063_1779383613.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: Assistant AG McDonald reveals heartbreaking consequences of the rampant Medicaid fraud in Minnesota - sharing that a patient died after not receiving the care he needed because of a fraudster:
+
+"One defendant is charged with defrauding the Integrated Community Supports Medicaid Program. This program is designed to help individuals with disabilities live independently.”
+
+“One patient was supposed to be receiving 24 hour care through this program, but he was actually being serviced by a fraudster and received no services. This patient was later found dead."
+</div>
+
+## IranIntlTV — post 338273
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338273_1779383614.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دفتر کمیسر عالی حقوق بشر سازمان ملل اعلام کرد ولکر تورک، کمیسر عالی حقوق بشر این نهاد، اعدام دو نفر دیگر در ایران را محکوم کرد.
+بر اساس گزارش این دفتر، تورک گفته مقام‌های جمهوری اسلامی از جنگ با آمریکا و اسرائیل به‌عنوان بهانه‌ای برای تشدید سرکوب داخلی استفاده می‌کنند.
+
+خبرگزاری میزان، وابسته به قوه قضاییه جمهوری اسلامی، گزارش داد رامین زله و کریم معروف‌پور، دو زندانی سیاسی بامداد پنج‌شنبه ۳۱ اردیبهشت اعدام شدند.
+https://iranintl.com/202605219033
+</div>
+
+## IranIntlTV — post 338272
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338272_1779383615.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک شهروند در پیامی به ایران اینترنشنال می‌گوید که بین مردم و حکومت دریایی از خون فاصله است و ترامپ نباید با جمهوری اسلامی مذاکره کند. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## DW_Farsi — post 124978
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 ایران "قصد ترور رئیس انجمن آلمان ـ اسرائيل" را داشت
+
+به نوشته رسانه‌‌های آلمانی، دادستانی فدرال این کشور علیه دو مرد با اصالت افغانستانی کیفرخواست صادر کرده که از سوی ایران مأمور عملیات تروریستی در آلمان شده بودند.
+
+یکی از این دو به نام "علی س." که یک دانمارکی‌‌ افغانستانی‌تبار است متهم است که برای سپاه پاسداران انقلاب اسلامی کار می‌کرده و در حال آماده‌سازی حملات احتمالی در آلمان بوده است.
+
+طبق اتهامات، او مأمور بوده اطلاعاتی درباره دو هدف احتمالی جمع‌آوری کند: یوزف شوستر، رئیس شورای مرکزی یهودیان آلمان و فولکر بک، سیاستمدار پیشین حزب سبزها و رئیس انجمن آلمان ـ اسرائيل (DIG) در آلمان. گفته می‌شود قرار بوده علیه بک سوءقصدی با هدف قتل انجام شود.
+
+نشریه اشپیگل آلمان نخستین رسانه در این کشور بود که این خبر را منتشر کرد.
+
+"علی س." در تابستان ۲۰۲۵ در دانمارک بازداشت و سپس به آلمان تحویل داده شد. متهم دوم با نام اختصاری "تواب م." نیز در نوامبر ۲۰۲۵ در دانمارک بازداشت و به آلمان منتقل شد. هر دوی آن‌ها از آن زمان تاکنون در بازداشت موقت به‌سر می‌برند.
+
+اتهام "علی س." شامل "فعالیت جاسوسی با هدف خرابکاری" و نیز "تلاش برای مشارکت در قتل و آتش‌سوزی عمدی شدید" است.
+
+"تواب م." نیز به "تلاش برای مشارکت در یک قتل" متهم شده است.
+
+بر اساس کیفرخواست صادره از دادگاه عالی ایالتی هامبورگ، "علی س." ظاهرا در اوایل سال ۲۰۲۵ از سوی تهران مأموریت یافته بود که یوزف شوستر و فولکر بک را تحت نظر بگیرد و درباره آن‌ها اطلاعات جمع‌آوری کند.
+@dw_farsi
+</div>
+
+## RadioFarda — post 157431
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه ۳۱ اردیبهشت گفت ایالات متحده با دریافت عوارض از کشتی‌ها در تنگه هرمز موافق نیست و ذخایر اورانیوم با غنای بالای ایران را به دست خواهد آورد. 🔸او در جمع خبرنگاران در کاخ سفید در پاسخ به سوالی درباه ذخایر اورانیوم…
+</div>
+
+## RadioFarda — post 157430
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157430_1779383616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸دونالد ترامپ، رئیس‌جمهور آمریکا، روز پنج‌شنبه ۳۱ اردیبهشت گفت ایالات متحده با دریافت عوارض از کشتی‌ها در تنگه هرمز موافق نیست و ذخایر اورانیوم با غنای بالای ایران را به دست خواهد آورد.
+
+🔸او در جمع خبرنگاران در کاخ سفید در پاسخ به سوالی درباه ذخایر اورانیوم غنی‌شده ایران گفت: «ما آن را به دست خواهیم آورد. به آن نیازی نداریم، آن را نمی‌خواهیم. احتمالاً بعد از این‌که به دستش آوردیم نابودش می‌کنیم، اما قرار نیست اجازه بدهیم آنها آن را داشته باشند.»
+
+🔸ترامپ بار دیگر بر عزم واشینگتن برای جلوگیری از دستیابی ایران به سلاح هسته‌ای تأکید کرد و گفت: «ما یا مطمئن می‌شویم که آنها سلاح هسته‌ای نداشته باشند یا مجبور می‌شویم یک اقدام بسیار شدید انجام دهیم. و من باور دارم وقتی این موضوع برای مردم کشورمان مطرح شود، همه موافق خواهند بود که نمی‌توانیم اجازه دهیم ایران سلاح هسته‌ای داشته باشد.»
+
+🔸این موضع‌گیری ساعاتی بعد از آن است که خبرگزاری رویترز به نقل از «دو منبع ارشد ایرانی» که خواستند نامشان فاش نشود، نوشت مجتبی خامنه‌ای، دستور داده است که ذخایر اورانیوم غنی‌شده ایران به خارج از کشور فرستاده نشود.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 281715
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281715" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+امروز در برنامه رادیویی جام‌جهان‌نما می‌شنوید:
+
+سفر دوباره فرمانده ارتش پاکستان به ایران برای میانجیگری میان تهران و واشنگتن؛ در حالی که اسلام‌آباد تلاش می‌کند نقش واسطه را حفظ کند، دونالد ترامپ هشدار داده که پاسخ ایران باید به گفته او «صحیح» باشد. این پیام‌ها چه معنایی برای آینده مذاکرات دارد؟
+
+در ادامه، اعلام محدوده نظارتی ایران بر تنگه هرمز؛ تهران می‌گوید تردد شناورها در این آبراه راهبردی تنها با هماهنگی و دریافت مجوز امکان‌پذیر است. آیا این تصمیم می‌تواند تنش‌ها را وارد مرحله تازه‌ای کند؟
+
+در مقابل، مخالفت وزیر خارجه آمریکا با اخذ عوارض در تنگه هرمز؛ مارکو روبیو می‌گوید چنین اقدامی مسیر دیپلماسی را می‌بندد و بحران را تشدید می‌کند.
+
+و اعدام دو زندانی دیگر در ایران به اتهام عضویت در "گروه‌های تجزیه‌طلب"؛ ادامه موج نگرانی‌های بین‌المللی درباره وضعیت حقوق بشر در ایران.
+
+برنامه رادیویی جام جهان‌نما هر شب ساعت ۲۰ به وقت ایران، روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۹۴۶۵ کیلوهرتز پخش می‌شود و تکرار آن را هم می‌توانید ساعت ۲۱:۳۰ روی موج متوسط ۷۰۲ کیلوهرتز و موج کوتاه ۵۳۹۵ کیلوهرتز گوش کنید.
+</div>
+
+## Dirty_Kids — post 389896
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389896_1779383617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من ترجیح میدم تو لندکروز بشکه بشکه اشک بریزم تا اینکه پشت هوندا مثل کسخلا بخندم:)))))))
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389895
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_389895_1779383618.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انتقام چپی‌های ۵۷‌تی از مردم بخاطر شعار جاوید شاه!
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389894
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/389894" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 389893
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389893_1779383620.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## alonews — post 121624
+
+<div align="center">
+  <a href="telegram/content/alonews_121624_1779383620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه آمریکا به الجزیره گفت: ما ۹ نفر را به دلیل حمایت از حزب‌الله و تضعیف حاکمیت لبنان تحریم کرده‌ایم. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121623
+
+<div align="center">
+  <a href="telegram/content/alonews_121623_1779383621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت امور خارجه آمریکا به الجزیره گفت: ما ۹ نفر را به دلیل حمایت از حزب‌الله و تضعیف حاکمیت لبنان تحریم کرده‌ایم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 121622
+
+<div align="center">
+  <a href="telegram/content/alonews_121622_1779383621.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار: آیا در مراسم عروسی پسرتان شرکت می‌کنید؟
+
+
+🔴ترامپ: او دوست دارد بروم. سعی می‌کنم. بهش گفتم این زمان‌بندی برای من خوب نیست. من با چیزی به نام ایران و مسائل دیگر سر و کار دارم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 20:33
 ---
 
@@ -283,8 +581,6 @@ All designated persons' U.S.-based assets frozen, 50% ownership rule applies to 
 
 ✅ @AloNews خبر جنگ
 </div>
-
-
 <!-- MSG END -->
 
 <!-- NAV START -->
