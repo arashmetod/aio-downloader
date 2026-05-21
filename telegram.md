@@ -7,6 +7,40 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/31 05:32
+---
+
+## VahidOOnLine — post 241257
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241257_1779328939.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مرکز لرزه‌نگاری موسسه ژئوفیزیک دانشگاه تهران اعلام کرد زمین‌لرزه‌ای به بزرگی ۴ بامداد پنج‌شنبه ۳۱ اردیبهشت حوالی فراشبند در استان فارس را لرزاند.
+بر اساس این گزارش، این زمین‌لرزه ساعت ۳:۴۷ بامداد رخ داده است. تا زمان انتشار این خبر گزارشی درباره خسارت‌های احتمالی منتشر نشده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342033
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342033_1779328940.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Johnny “Joey” Jones is heading back into the Marine Corps.
+
+The FOX News host and combat veteran announced he is reenlisting more than a decade after medically retiring following a 2010 IED-related incident in Afghanistan that cost him both legs.
+
+Jones has become one of the most visible advocates for veterans and wounded warriors since joining FOX News.
+
+Now the decorated Marine says he’s ready to serve again. |@Johnny_Joey
+</div>
+
+---
 📅 بروزرسانی: 1405/02/31 05:22
 ---
 
