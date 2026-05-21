@@ -39,6 +39,10 @@ on:
           - 192k
           - 128k
         default: LOSSLESS
+      upload_as_release:
+        description: 'Upload files as a GitHub Release (uncheck = split push to repo)'
+        type: boolean
+        default: false
 
 permissions:
   contents: write
@@ -130,7 +134,6 @@ jobs:
           while IFS= read -r url; do
             [ -z "$url" ] && continue
             echo "::group::Downloading: $url"
-            # SpotiFLAC CLI: spotiflac <url> <output_dir> --service <svc>... --quality <q>
             if spotiflac "$url" music \
               --service tidal qobuz deezer amazon \
               --quality "$QUALITY" \
@@ -162,7 +165,6 @@ jobs:
           TARGET_FMT="${{ github.event.inputs.output_format }}"
           BITRATE="${{ github.event.inputs.audio_quality }}"
 
-          # If output is already FLAC, no conversion needed
           if [ "$TARGET_FMT" = "flac" ]; then
             echo "Output format is FLAC – skipping conversion."
             exit 0
@@ -206,7 +208,7 @@ jobs:
         shell: bash
         run: |
           if [ -f failed_urls.txt ] && [ -s failed_urls.txt ]; then
-            echo "::warning::Some downloads failed. Adding failed_downloads.txt to the zip."
+            echo "::warning::Some downloads failed. Adding failed_downloads.txt to the archive."
             cp failed_urls.txt music/failed_downloads.txt
           else
             echo "No failed downloads – no fail log needed."
@@ -223,25 +225,51 @@ jobs:
           echo "Total songs downloaded: $SONG_COUNT"
           ls -lhR music/
 
-      - name: Create Split Zip Archive
+      - name: Archive Music Folder
+        id: archive
         shell: bash
         run: |
+          UPLOAD_AS_RELEASE="${{ inputs.upload_as_release }}"
           RANDOM_STR=$(python3 -c "import random, string; print(''.join(random.choices(string.ascii_lowercase + string.digits, k=5)))")
           BASE_NAME="music-${RANDOM_STR}"
           ZIP_NAME="${BASE_NAME}.zip"
 
-          echo "Creating split zip: $ZIP_NAME (99 MB parts)"
+          echo "Upload method: $([ "$UPLOAD_AS_RELEASE" = "true" ] && echo "release" || echo "split_push")"
+
+          # Clean up any old zip parts
+          rm -rf music_archive
+          mkdir -p music_archive
 
           cd music || exit 1
-          zip -r -s 99m "../${ZIP_NAME}" .
+
+          if [ "$UPLOAD_AS_RELEASE" = "true" ]; then
+            echo "Creating unsplit ZIP (will split only if > 1950 MiB)"
+            zip -r "../music_archive/${ZIP_NAME}" .
+            FULLZIP="../music_archive/${ZIP_NAME}"
+            SIZE=$(stat -c%s "$FULLZIP" 2>/dev/null || echo 0)
+            if [ "$SIZE" -gt 2044723200 ]; then
+              echo "ZIP larger than 1950 MiB, splitting into 1950M parts"
+              rm "$FULLZIP"
+              zip -r -s 1950m "../music_archive/${ZIP_NAME}" .
+            fi
+          else
+            echo "Creating split ZIP (99 MB parts)"
+            zip -r -s 99m "../music_archive/${ZIP_NAME}" .
+          fi
           cd ..
 
-          # Move all parts into the music folder for commit
+          # Move everything back into the music folder for uniform handling
           rm -rf music/*
-          mv ${BASE_NAME}.* music/ 2>/dev/null || mv ${ZIP_NAME} music/ 2>/dev/null || true
-          ls -lh music/
+          mv music_archive/* music/
+          rmdir music_archive 2>/dev/null || true
 
-      - name: Upload to music folder
+          ls -lh music/
+          ls -1 music > music_assets.txt
+          echo "Assets list:"
+          cat music_assets.txt
+
+      - name: Upload to repository (split_push method)
+        if: ${{ inputs.upload_as_release == 'false' }}
         env:
           BRANCH: ${{ github.ref_name }}
         run: |
@@ -270,8 +298,40 @@ jobs:
             fi
           done
 
+      - name: Create Release and upload assets (release method)
+        if: ${{ inputs.upload_as_release == 'true' }}
+        env:
+          GH_TOKEN: ${{ secrets.GITHUB_TOKEN }}
+        run: |
+          if [ ! -s music_assets.txt ]; then
+            echo "No assets to release."
+            exit 0
+          fi
+
+          RAND5=$(tr -dc 'a-z' </dev/urandom | head -c5)
+          TAG="spotify-downloader-${RAND5}"
+          echo "Creating release tag: $TAG"
+
+          git config user.name "GitHub Actions"
+          git config user.email "actions@github.com"
+
+          git tag "$TAG" -m "Spotify download release"
+          git push origin "$TAG"
+
+          ASSET_ARGS=""
+          while IFS= read -r file; do
+            ASSET_ARGS="$ASSET_ARGS music/$file"
+          done < music_assets.txt
+
+          gh release create "$TAG" $ASSET_ARGS \
+            --title "spotify-downloader-${RAND5}" \
+            --notes "Automated release from Spotify Download workflow." \
+            --target "${{ github.ref_name }}"
+
+          echo "Release '$TAG' created with assets."
+
       - name: Cleanup
         if: always()
         shell: bash
         run: |
-          rm -rf music release_files spotify_urls.txt failed_urls.txt *.zip 2>/dev/null || true
+          rm -rf music release_files spotify_urls.txt failed_urls.txt music_assets.txt *.zip 2>/dev/null || true
