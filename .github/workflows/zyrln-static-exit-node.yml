@@ -1,4 +1,4 @@
-name: zyrln-cloudflare-static-exit-node
+name: zyrln-static-exit-node
 
 on:
   workflow_dispatch:   # manual trigger
