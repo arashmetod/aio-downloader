@@ -1,4 +1,4 @@
-name: "website-capture"
+name: "fetcher-website"
 
 on:
   workflow_dispatch:
