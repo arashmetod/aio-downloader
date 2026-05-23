@@ -1,48 +1,10 @@
-<p align="center">
-  <h1 align="center">🌐 aio‑downloader</h1>
-  <p align="center"><strong>All‑in‑One GitHub Actions Downloader — بدون فیلتر · بدون تحریم</strong></p>
-</p>
+<div dir="rtl" markdown="1">
 
-<p align="center">
-  ⭐ <strong>اگر این پروژه برایتان مفید است، لطفاً ستاره بدهید — به دیگران کمک می‌کند پیدایش کنند!</strong> ⭐
-</p>
+# 📖 راهنمای جامع AIO-Downloader
 
----
+**All‑in‑One GitHub Actions Downloader — بدون فیلتر · بدون تحریم**
 
-## ⚠️ اعلامیه مهم برای کاربرانی که قبلاً فورک کرده‌اند (حتماً بخوانید)
-
-> **مخزن اصلی** (`ProAlit/aio-downloader`) به‌طور مداوم به‌روزرسانی می‌شود — رفع باگ‌ها، ویژگی‌های جدید، و بهبود امنیت. **فورک شما به‌صورت خودکار این به‌روزرسانی‌ها را دریافت نمی‌کند!**
-
-### ✅ مشکل push و پوشه — کاملاً برطرف شد
-در نسخه‌های قدیمی‌تر، برخی workflowها هنگام push با خطا مواجه می‌شدند یا فایل‌ها در مسیر اشتباه قرار می‌گرفتند. این مشکل اکنون به‌طور کامل حل شده است:
-- تمام workflowها از `persist-credentials: true` استفاده می‌کنند
-- قبل از هر push، یک `git pull --rebase --autostash` اجرا می‌شود تا تداخلی پیش نیاید
-- حلقه‌ی تلاش مجدد ۵ مرحله‌ای برای push وجود دارد
-- پوشه‌های خروجی با `mkdir -p` ساخته می‌شوند
-- حجم بافر git به ۵۰۰ مگابایت افزایش یافته (`http.postBuffer`)
-
-> **اگر همچنان مشکلی دیدید، ابتدا فورک خود را به‌روز کنید (پایین را ببینید) — به احتمال زیاد فورک‌تان قدیمی است.**
-
----
-
-### 🔄 همگام‌سازی فورک — فقط با خودِ وبسایت GitHub (بدون گیت)
-
-> ❗ **این کار را انجام دهید تا آخرین اصلاحات و امکانات را دریافت کنید.**
-
-#### ⚠️ نکته بسیار مهم: نمی‌توانید Pull Request باز کنید
-اگر در فورک خود تغییری commit کرده باشید (حتی ویرایش `channels.json`)، فورک شما از مخزن اصلی «جلوتر» می‌افتد و دیگر به‌روزرسانی دریافت نمی‌کند. **تنها راه، دور انداختن commitهای خودتان و همگام‌سازی کامل است.**
-
-#### روش (فقط در وبسایت GitHub):
-
-1. به صفحه فورک خود بروید (مثلاً `github.com/your-username/aio-downloader`)
-2. بالای لیست فایل‌ها، روی دکمه‌ای که نوشته **«Sync fork»** کلیک کنید.
-3. در منوی بازشده، اگر commit اضافی ندارید، گزینه **«Update branch»** را بزنید.
-4. **اگر commit اضافی دارید** (مثلاً فایل‌ها را ویرایش کرده‌اید)، به جای Update branch، گزینه **«Discard commits»** (دور انداختن commitها) را انتخاب کنید. این کار فورک شما را دقیقاً با مخزن اصلی یکسان می‌کند.
-> نکته خیلی مهم!!! حتما بعد هر آپدیت مرحله کلینر رو برای همه اجرا کنید وگرنه دانلودهاتون به شدت کند انجام میشه!!.
-
-> ⚠️ با Discard commits تمام تغییرات خود را از دست می‌دهید. اگر فایل مهمی دارید، اول دانلودش کنید.
-
-**پس از آن، فورک شما کاملاً به‌روز شده و آخرین رفع‌ها و قابلیت‌ها را دارد.**
+⭐⭐⭐ اگر این پروژه برایتان مفید است، لطفاً ستاره بدهید — به دیگران کمک میکند پیدایش کنند! ⭐⭐⭐
 
 ---
 
@@ -141,11 +103,11 @@
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/robots.txt
 https://www.instagram.com/robots.txt
 https://x.com/robots.txt
-```
++++
 
 </div>
 
@@ -304,19 +266,42 @@ https://x.com/robots.txt
 
 5. **APIs & Services** → **Credentials**.
 6. **Create Credentials** → **OAuth client ID**.
-7. نوع اپلیکیشن: **Desktop app** (یا Web application).
-8. نام دلخواه بدهید و **Create** کنید.
-9. **Client ID** و **Client Secret** نمایش داده میشود. آنها را کپی کنید.
-10. Secretهای زیر را در GitHub بسازید:
+7. نوع اپلیکیشن را **Web application** انتخاب کنید (حتی اگر برای استفاده شخصی است).
+8. نام دلخواه بدهید.
+9. در بخش **Authorized redirect URIs**، روی **ADD URI** کلیک کنید و آدرس زیر را وارد کنید:
 
 <div dir="ltr" markdown="1">
 
-```
-GOOGLE_CLIENT_ID → Client ID خود را بچسبانید
-GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
-```
++++
+https://developers.google.com/oauthplayground
++++
 
 </div>
+
+10. روی **Create** کلیک کنید.
+11. **Client ID** و **Client Secret** نمایش داده میشود. آنها را کپی کنید.
+12. Secretهای زیر را در GitHub بسازید:
+
+<div dir="ltr" markdown="1">
+
++++
+GOOGLE_CLIENT_ID → Client ID خود را بچسبانید
+GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
++++
+
+</div>
+
+<div dir="ltr" markdown="1">
+
+**⚠️  قسمت دوم-الف: انتشار برنامه (Publish) — حیاتی!**
+
+</div>
+
+اگر این مرحله را انجام ندهید، در قسمت سوم (مرحله ۱۶) با خطای **403** یا **400** مواجه میشوید.
+
+13. به صفحه [OAuth consent screen](https://console.cloud.google.com/apis/credentials/consent) بروید.
+14. اگر برنامه شما در حالت **Testing** قرار دارد (با نوار زرد رنگ)، روی دکمه‌ای که زیر **"In production"** نیست کلیک کنید (معمولاً **PUBLISH APP**). در تأییدیه، **Confirm** را بزنید.
+15. وضعیت باید به **"In production"** تغییر کند. (لازم نیست برنامه توسط گوگل تأیید شود؛ برای استفاده شخصی کافیست.)
 
 <div dir="ltr" markdown="1">
 
@@ -324,31 +309,31 @@ GOOGLE_CLIENT_SECRET → Client Secret خود را بچسبانید
 
 </div>
 
-11. به [Google OAuth Playground](https://developers.google.com/oauthplayground/) بروید.
-12. روی آیکون ⚙️ (تنظیمات) کلیک کنید.
-13. تیک **Use your own OAuth credentials** را بزنید.
-14. Client ID و Client Secret خود را وارد کنید و **Close** کنید.
-15. در **Step 1**، در بخش **Drive API v3**، scope زیر را انتخاب کنید:
+16. به [Google OAuth Playground](https://developers.google.com/oauthplayground/) بروید.
+17. روی آیکون ⚙️ (تنظیمات) کلیک کنید.
+18. تیک **Use your own OAuth credentials** را بزنید.
+19. Client ID و Client Secret خود را وارد کنید و **Close** کنید.
+20. در **Step 1**، در بخش **Drive API v3**، scope زیر را انتخاب کنید:
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.googleapis.com/auth/drive
-```
++++
 
 </div>
 
-16. روی **Authorize APIs** کلیک کنید و اجازه دسترسی بدهید.
-17. در **Step 2**، تیک **Auto-refresh the token before it expires** را بزنید.
-18. روی **Exchange authorization code for tokens** کلیک کنید.
-19. **Refresh token** نمایش داده میشود. آن را کپی کنید.
-20. Secret زیر را در GitHub بسازید:
+21. روی **Authorize APIs** کلیک کنید و اجازه دسترسی بدهید. (اگر خطای redirect_uri_mismatch گرفتید، مطمئن شوید Authorized redirect URIs شامل آدرس Playground است.)
+22. در **Step 2**، تیک **Auto-refresh the token before it expires** را بزنید.
+23. روی **Exchange authorization code for tokens** کلیک کنید.
+24. **Refresh token** نمایش داده میشود. آن را کپی کنید.
+25. Secret زیر را در GitHub بسازید:
 
 <div dir="ltr" markdown="1">
 
-```
++++
 GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
-```
++++
 
 </div>
 
@@ -389,12 +374,12 @@ GOOGLE_REFRESH_TOKEN → Refresh Token خود را بچسبانید
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 480
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080 60
 https://www.youtube.com/watch?v=VIDEO_ID a max
 https://www.youtube.com/watch?v=VIDEO_ID v 4k
-```
++++
 
 </div>
 
@@ -431,11 +416,11 @@ https://www.youtube.com/watch?v=VIDEO_ID v 4k
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.instagram.com/p/DX2y7oLDFOb/,
 https://www.instagram.com/reel/DVRXhn0gjL3/,
 https://www.instagram.com/p/DX6US4uCNGb/
-```
++++
 
 </div>
 
@@ -463,10 +448,10 @@ https://www.instagram.com/p/DX6US4uCNGb/
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://x.com/username/status/123456789,
 https://x.com/otheruser/status/987654321
-```
++++
 
 </div>
 
@@ -493,9 +478,9 @@ https://x.com/otheruser/status/987654321
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://example.com/file.zip, https://example.com/video.mp4
-```
++++
 
 </div>
 
@@ -522,9 +507,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-```
++++
 ["VahidOOnLine", "mwarmonitor", "channelname"]
-```
++++
 
 </div>
 
@@ -549,9 +534,9 @@ https://example.com/file.zip, https://example.com/video.mp4
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://t.me/channelname/123, https://t.me/channelname/456
-```
++++
 
 </div>
 
@@ -580,10 +565,10 @@ https://t.me/channelname/123, https://t.me/channelname/456
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://example.com/article
 https://github.com/ProAlit/aio-downloader
-```
++++
 
 </div>
 
@@ -616,7 +601,7 @@ https://github.com/ProAlit/aio-downloader
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=VIDEO_ID -- --format "bestvideo[height<=1080]+bestaudio/best[height<=1080]" --merge-output-format mkv
 https://www.tiktok.com/@user/video/ID -- --write-subs --sub-lang en
 # یوتیوب با زیرنویس
@@ -629,7 +614,7 @@ https://x.com/user/status/ID -- --format best
 https://www.pinterest.com/pin/ID -- --format best
 # ساندکلاد
 https://soundcloud.com/artist/track -- --format bestaudio
-```
++++
 
 </div>
 
@@ -638,10 +623,10 @@ https://soundcloud.com/artist/track -- --format bestaudio
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://www.youtube.com/watch?v=dfdXGw1xY9A v 1080
 https://soundcloud.com/artist/track a 320
-```
++++
 
 </div>
 
@@ -670,10 +655,10 @@ https://soundcloud.com/artist/track a 320
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://soundcloud.com/artist/track,
 https://soundcloud.com/artist/track
-```
++++
 
 </div>
 
@@ -705,11 +690,11 @@ https://soundcloud.com/artist/track
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://open.spotify.com/track/xxxxx,
 https://open.spotify.com/album/xxxxx,
 https://open.spotify.com/playlist/xxxxx
-```
++++
 
 </div>
 
@@ -775,11 +760,11 @@ https://open.spotify.com/playlist/xxxxx
 
 <div dir="ltr" markdown="1">
 
-```
++++
 app: com.spotify.music
 architecture: arm64
 merge_splits: true
-```
++++
 
 </div>
 
@@ -814,10 +799,10 @@ merge_splits: true
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://mega.nz/file/xxxxx,
 https://mega.nz/folder/xxxxx
-```
++++
 
 </div>
 
@@ -845,9 +830,9 @@ https://mega.nz/folder/xxxxx
 
 <div dir="ltr" markdown="1">
 
-```
++++
 https://random-name.trycloudflare.com
-```
++++
 
 </div>
 
@@ -855,14 +840,14 @@ https://random-name.trycloudflare.com
 
 <div dir="ltr" markdown="1">
 
-```
++++
 "exit_node": {
   "enabled": true,
   "provider": "vps",
   "url": "https://random-name.trycloudflare.com",
   "psk": "همان_رمز_مخفی"
 }
-```
++++
 
 </div>
 
