@@ -7,6 +7,80 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 00:32
+---
+
+## VahidOOnLine — post 242002
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242002_1779656561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ دونالد ترامپ، رئیس‌جمهوری آمریکا، هم‌زمان با مذاکرات فشرده دیپلماتیک میان واشنگتن و تهران، تصویری معنادار و هشدارآمیز از یک بمب نصب‌شده زیر بال یک جنگنده را در شبکه اجتماعی «تروث سوشال» منتشر کرد که روی آن عبارت «از توجه شما به این موضوع سپاسگزارم!» درج شده است. این پیام پس از آن منتشر شد که ترامپ با حمله به منتقدان و «بازنده» خواندن آن‌ها تاکید کرد برخلاف اوباما تن به یک «توافق بد» نخواهد داد و اگرچه چارچوب تفاهم با ایران بر سر ذخایر هسته‌ای و تنگه هرمز تا ۹۵ درصد پیش رفته، اما هنوز نهایی نشده است. این تصویر در واقع بازتاب‌دهنده همان موضع سرسختانه مقامات کاخ سفید و وزیر خارجه آمریکا، مارکو روبیو، در روز یکشنبه است که اعلام کردند واشنگتن برای امضای توافق عجله‌ای ندارد و در صورت عدم پایبندی تهران به اصول فنی مذاکرات و رویکرد «نه غبار، نه دلار»، گزینه‌های نظامی و ازسرگیری حملات سنگین علیه ایران کاملا روی میز باقی خواهد ماند.
+
+
+#دونالد_ترامپ #ایران #آمریکا #مذاکرات #تنگه_هرمز #حمله_نظامی #ایندیپندنت_فارسی
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## Persian_Trend_Official — post 14893
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/14893" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 6.44 مگابایت
+
+اتاق جنگ یکشنبه 3 خرداد | توافق ایران و آمریکا، خیلی دور خیلی نزدیک !
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Dirty_Kids — post 390107
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390107_1779656561.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ، تصویری از بمب اتم همراه این نوشته:
+
+از شما بابت توجهتون به این موضوع ممنونم.
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122446
+
+<div align="center">
+  <a href="telegram/content/alonews_122446_1779656562.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈محسن رضایی : دست روی ماشه هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122445
+
+<div align="center">
+  <a href="telegram/content/alonews_122445_1779656563.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال۱۲عبری: نتانیاهو در تلاشه تا توافق رو بهم بزنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 00:22
 ---
 
