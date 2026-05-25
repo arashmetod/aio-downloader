@@ -7,6 +7,130 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/04 05:34
+---
+
+## VahidOOnLine — post 242049
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242049_1779674648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سی‌بی‌اس به نقل از مقامات آمریکایی و منابع مطلع با اشاره به دشواری ارتباط مقامات جمهوری اسلامی با یکدیگر باتوجه به اینکه همه مقامات ارشد در پناهگاه زیرزمینی به‌سر می‌برند نوشت: «تماشای تلاش آنها برای ارتباط گرفتن با هم شبیه یک سریال کمدی است. کاملا کلافه شده است.» در این گزارش آمده است که مقامات جمهوری اسلامی در پناهگاه‌های مستحکم به‌سر می‌برند و برای هفته‌ها زیر زمین می‌مانند و فقط در موارد اضطراری با هم تماس دارند. سی‌بی‌اس می‌افزاید: مقامات جمهوری اسلامی در داخل ساختار حکومتی خودشان هم برای هماهنگی با مشکل جدی رو‌به‌رو هستند. این درحالی است که به سومین رهبر جمهوری اسلامی هم دسترسی بسیار محدودی وجود دارد و حتی بسیاری از مقامات بلندپایه حکومت هم نمی‌دانند او کجاست. از سوی دیگر پیام‌ها از طریق «قاصدها» به او منتقل می‌شود و همین موضوع روند انتقال پیام و تصمیم‌گیری را طولانی‌تر کرده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242048
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242048_1779674649.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اورشلیم‌پست گزارش داد در حالی که اخبار حاکی از ادامه مذاکرات میان آمریکا و حکومت ایران است، ارتش اسرائیل در وضعیت «آماده‌باش بالا» باقی مانده است.
+
+بر اساس این گزارش، ارتش اسرائیل در صورت شکست گفت‌وگوها، احتمال ازسرگیری درگیری‌ها را در نظر خواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242047
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242047_1779674650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اورشلیم‌پست گزارش داد در حالی که اخبار حاکی از ادامه مذاکرات میان آمریکا و حکومت ایران است، ارتش اسرائیل در وضعیت «آماده‌باش بالا» باقی مانده است.
+
+بر اساس این گزارش، ارتش اسرائیل در صورت شکست گفت‌وگوها، احتمال ازسرگیری درگیری‌ها را در نظر خواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242046
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242046_1779674651.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اورشلیم‌پست گزارش داد در حالی که اخبار حاکی از ادامه مذاکرات میان آمریکا و حکومت ایران است، ارتش اسرائیل در وضعیت «آماده‌باش بالا» باقی مانده است.
+
+بر اساس این گزارش، ارتش اسرائیل در صورت شکست گفت‌وگوها، احتمال ازسرگیری درگیری‌ها را در نظر خواهد گرفت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342192
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+An emotional night for NASCAR.
+
+For the first time since Kyle Busch's death, his wife Samantha and son Brexton appeared publicly for a powerful remembrance of the late driver's life.
+
+Then, on lap 8, the crowd stood as one — cheering, crying, and saluting the legacy "Rowdy" left behind.
+
+The message was clear: Kyle Busch's impact on NASCAR will never be forgotten.
+</div>
+
+## IranIntlTV — post 338842
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338842_1779674652.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه اورشلیم‌پست گزارش داد در حالی که اخبار حاکی از ادامه مذاکرات میان آمریکا و حکومت ایران است، ارتش اسرائیل در وضعیت «آماده‌باش بالا» باقی مانده است.
+
+بر اساس این گزارش، ارتش اسرائیل در صورت شکست گفت‌وگوها، احتمال ازسرگیری درگیری‌ها را در نظر خواهد گرفت.
+https://iranintl.com/202605253185
+</div>
+
+## Persian_Trend_Official — post 14903
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14903_1779674653.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس‌نیوز مدعی «پیشرفت ۹۵ درصدی تفاهم اولیه بین ایران و آمریکا» شد
+
+♦️شبکه آمریکایی فاکس‌نیوز مدعی شد که تفاهم اولیه درباره حدود ۹۵ درصد مفاد یک توافق‌نامه حاصل شده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281978
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_281978_1779674654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسانه‌ها در ایران در خبری مبهم از صدور حکم دیگری برای متهمان پرونده قتل آرمان علی‌وردی، طلبه بسیجی، در جریان اعتراضات سال ۱۴۰۱ خبر داده‌اند که این بار در جریان یک «محاکمه موازی» در دادگاه انقلاب تهران روی داده است.
+
+خبرگزاری‌های ایران روز یکشنبه نوشته‌اند این دادگاه برای ۴ نفر از متهمان این پرونده حکم اعدام صادر کرده و برای دیگر متهمان احکامی بین یک تا پنج سال زندان تعیین کرده است.
+این در حالی است که چند روز پیش گزارش شد دادگاه تجدیدنظر در حکمی درباره متهمان این پرونده گفته است میلاد آرمون، علیرضا کفایی، امیرمحمد خوش اقبال به پنج سال حبس و پرداخت دیه محکوم شده‌اند.
+همچنین حسین نعمتی به پرداخت دﯾﻪ ﺻﺪﻣﺎت به خانواده آرمان علی وردی محکوم شد اما به‌همراه نوید نجاران و علیرضا برمز پورناک از سایر اتهامات تبرئه شدند.
+
+با این حال، روز یکشنبه - سوم خرداد - خبرگزاری‌های ایران در خبری با متن مشابه از صدور این حکم خبر دادند.
+
+خبرگزاری‌های ایران از «رسیدگی موازی» این پرونده در دادگاه انقلاب تهران نوشتند.
+
+آن‌طور که گزارش شده این حکم هم قابل فرجام خواهی است.
+بیشتر بخوانید:
+
+https://bbc.in/3RjDPZ8
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/04 05:22
 ---
 
