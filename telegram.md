@@ -7,6 +7,63 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 03:04
+---
+
+## VahidOOnLine — post 242200
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242200_1779752095.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ شبکه فاکس‌نیوز به نقل از سخنگوی فرماندهی مرکزی ایالات متحده (سنتکام) گزارش داد نیروهای نظامی آمریکا «در دفاع از خود در جنوب ایران» به اهدافی حمله کرده‌اند.
+این سخنگو توضیح داد که اهداف مورد حمله شامل محل‌های پرتاب موشک و قایق‌هایی بوده‌اند که تلاش می‌کردند مین‌گذاری کنند. در این بیانیه آمده است: ارتش ایالات متحده از نیروهای آمریکایی «در حالی که در جریان آتش‌بس جاری خویشتن‌داری نشان می‌دهند» دفاع خواهد کرد.
+پیش‌تر، خبرگزاری مهر از وقوع انفجارهایی در بندری بندرعباس خبر داده بود. صدای انفجار و فعالیت پدافند در اصفهان، بابل و اندیمشک هم شنیده شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## mwarmonitor — post 9728
+
+<div align="center">
+  <a href="telegram/content/mwarmonitor_9728_1779752095.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📝 جذابیت سیاست مدرن به همینه؛ شما می‌تونی کل حیاط پشتی همسایه رو شخم بزنی، زیربنای نظامی‌ش رو بفرستی هوا، بعد دستت رو بزنی به کمرت و بگی: «سوءتفاهم نشه، این فقط یک حرکت کاملاً دفاعی و دوستانه در راستای تحکیم پایه‌های صلح پایدار بود!» طبق استاندارد جدید دیپلماتیک،…
+</div>
+
+## pm_afshaa — post 91512
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91512_1779752098.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴الجزیره به نقل از یک مقام آمریکایی: ایران طی 24 ساعت گذشته تلاش کرد به نیروهای آمریکایی حمله کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218660
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️واکنش‌های متفاوت در کنگره آمریکا به مفاد توافق احتمالی با جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20773
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس‌نیوز به نقل از سخنگوی ستاد فرماندهی مرکزی آمریکا(سنتکام) گزارش داد:
+
+نیروهای آمریکایی روز دوشنبه در جنوب ایران به اهدافی از جمله محل‌های پرتاب موشک و قایق‌های ایرانی که در تلاش برای مین‌گذاری بودند ، حمله کردند.
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 02:52
 ---
 
