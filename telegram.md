@@ -7,6 +7,148 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 09:12
+---
+
+## VahidOOnLine — post 242223
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242223_1779774153.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، با اشاره به مذاکرات با آمریکا، گفت: «تا زمانی که منافع کامل جمهوری اسلامی تامین نشود، هیچ اقدامی انجام نخواهد شد و مجلس مسائل را با حساسیت دنبال می‌کند.»
+
+او افزود: «مردم نگران نباشند، مسئولان با دقت در حال رصد و بررسی همه موضوعات هستند.»
+
+این نماینده مجلس ادامه داد: «روند فعلی ادامه دارد و اگر اقدامات اعتمادساز آمریکا نتایج ملموس داشته باشد، ممکن است زمینه برای گام‌های بعدی فراهم شود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## IranIntlTV — post 339033
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339033_1779774154.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم عزیزی، رییس کمیسیون امنیت ملی مجلس، با اشاره به مذاکرات با آمریکا، گفت: «تا زمانی که منافع کامل جمهوری اسلامی تامین نشود، هیچ اقدامی انجام نخواهد شد و مجلس مسائل را با حساسیت دنبال می‌کند.»
+
+او افزود: «مردم نگران نباشند، مسئولان با دقت در حال رصد و بررسی همه موضوعات هستند.»
+
+این نماینده مجلس ادامه داد: «روند فعلی ادامه دارد و اگر اقدامات اعتمادساز آمریکا نتایج ملموس داشته باشد، ممکن است زمینه برای گام‌های بعدی فراهم شود.»
+https://iranintl.com/202605264082
+</div>
+
+## IranIntlTV — post 339032
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339032" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار بامدادی | سه‌شنبه ۵ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339031
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339031_1779774155.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تغییر الگوی دسترسی کاربران ایرانی تلفن همراه به اینترنت جهانی
+@iranintltv
+</div>
+
+## IranIntlTV — post 339030
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339030_1779774156.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تغییر الگوی دسترسی کاربران ایرانی تلفن همراه به اینترنت جهانی
+@iranintltv
+</div>
+
+## FarsiVOA — post 218674
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺تأکید روبیو بر مقابله جمعی با مشکلات جهانی در «مجمع چهارجانبه امنیتی»
+
+▪️وزیر خارجه آمریکا، در ابتدای مجمع چهارجانبه امنیتی در دهلی‌نو با حضور ایالات متحده، هند، استرالیا و ژاپن گفت: «این مجمع به‌طور فزاینده‌ای در حال تبدیل به بستری است که در آن باید اقدام کنیم.»
+
+▪️مارکو روبیو افزود: این اقدامات می‌تواند «پاسخ بشردوستانه، امنیت انرژی، آزادی ناوبری، نیاز به متنوع‌سازی منابع تأمین‌مان، نه فقط در حوزه انرژی، بلکه در مواد معدنی حیاتی و زنجیره‌های تأمین باشد.»
+
+▪️نشست اخیر وزرای خارجه کشورهای عضو مجمع چهارجانبه امنیتی، سومین نشست مشابه از سپتامبر ۲۰۲۴ تاکنون است.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153986.html
+</div>
+
+## Dirty_Kids — post 390211
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390211_1779774157.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رسما کاباره‌ باز کردن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390210
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390210_1779774158.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این ویدیو واسه سال ۲۰۱۰عه
+خیلی دوست دارم بدونم این دخترا الان کجان چیکار میکنن...
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 122715
+
+<div align="center">
+  <a href="telegram/content/alonews_122715_1779774160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سردار شکارچی:اگر مورد حمله قرار بگیریم، حملات ما شدیدتر، سنگین‌تر و قوی‌تر خواهد بود 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122714
+
+<div align="center">
+  <a href="telegram/content/alonews_122714_1779774160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای گاردین: در دورهای قبلی مذاکره با آمریکا، ایران گفته بود که حاضر است ذخایر اورانیوم غنی‌شده را رقیق کند، اما اجازه انتقال این ذخایر به آمریکا یا روسیه را نخواهد داد.
+
+
+🔴کارشناسان می‌گویند توییت امشب ترامپ می‌تواند امتیاز بزرگی از سوی رئیس‌جمهور آمریکا محسوب شود، زیرا او به دنبال نهایی کردن توافق با ایران است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122713
+
+<div align="center">
+  <a href="telegram/content/alonews_122713_1779774160.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 گفت‌وگوی تلفنی روبیو و لاوروف درباره ایران
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 09:02
 ---
 
