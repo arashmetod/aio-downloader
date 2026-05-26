@@ -7,6 +7,208 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/05 19:23
+---
+
+## VahidOOnLine — post 242306
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242306_1779810838.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تسنیم، خبرگزاری وابسته به سپاه، روز سه‌شنبه از «اتصال کامل اینترنت بین‌الملل در مخابرات ایران» خبر داد. تسنیم نوشت: «کاربران سرویس‌های پهن‌باند ثابت شامل اف‌تی‌تی‌اچ (FTTH)، وی‌دی‌اس‌ال (VDSL) و ای‌دی‌اس‌ال (ADSL) هم‌اکنون بدون محدودیت به شبکه جهانی اینترنت متصل هستند و امکان استفاده کامل از وب‌سایت‌ها و خدمات بین‌المللی برای آن‌ها فراهم شده است».
+پیش از این، «نت‌بلاکس» که وضعیت اینترنت در جهان را رصد می‌کند با انتشار پیامی در اکس از «شاخص‌های زنده نشان‌دهنده بازگشت جزئی اتصال اینترنت در ایران پس از ۲۰۹۳ ساعت انزوای تقریبا کامل از شبکه‌های بین‌المللی» خبر داده بود.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242305
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️سی‌ویکمین جشنواره فرهنگی‌ورزشی عشایر آذربایجان شرقی روز جمعه با حضور حدود ۴۰۰ شرکت‌کننده در قشلاق هارنا از توابع شهرستان کلیبر برگزار شد.
+این جشنواره شامل برنامه‌هایی مانند بازی‌های بومی‌محلی، سوارکاری و رقابت‌های سنتی بود و با هدف حفظ و معرفی فرهنگ عشایری برگزار شد.
+جشنواره عشایر آذربایجان شرقی که بیش از سه دهه قدمت دارد، هر سال یکی از رویدادهای مهم فرهنگی و گردشگری منطقه به شمار می‌رود و شمار زیادی از بازدیدکنندگان را جذب می‌کند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FarsiVOA — post 218714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرویز قلیچ‌خانی، ستاره سرشناس فوتبال ایران پس از انقلاب ۵۷ ناگزیر به ترک کشور شد و دلشکستگی‌اش را با انتشار مجله «آرش» پاسخ داد
+</div>
+
+## IranianMinds — post 20822
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اینترنت داره برمیگرده به قبل از دی ماه
+
+اما ما هرگز برنمیگردیم :)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فرماندهی مرکزی ایالات متحده ادعا می کند که به عنوان بخشی از محاصره دریایی ایالات متحده علیه ایران که از 13 آوریل آغاز شد، 108 کشتی تجاری را تغییر مسیر داده و 4 فروند را از کار انداخته است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20820
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💯 اگر هنوز ۵۰۰ هزارتومان رو نگرفتی همین الان عضو شو‌ و جایزتو بگیر
+نیازی هم به واریز نیست
+
+👍 تنها سایت مورد #تایید ما با بونوس های واقعی
+
+🌐 Winro.io
+</div>
+
+## IranianMinds — post 20819
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20819_1779810839.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ رایگان بدون واریز شرط های فوتبالی ببند از همون اول موجودی 500 هزارتومانه
+❌
+
+
+🎉 500 هزارتومن رایگان فقط با ثبت نام بدون هیچگونه واریزی!
+
+
+💳 پرداخت مستقیم و سریع بدون واسطه، بدون دردسر، واریز و برداشت در سریع‌ترین زمان ممکن
+
+
+⌛ پشتیبانی 24 ساعته
+
+
+🌐 Winro.io
+
+🌐 Winro.io
+کانال بونوس های رایگان g5
+
+📱 @winro_io
+</div>
+
+## IranianMinds — post 20818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴وال‌استریت‌ژورنال: نیروی دریایی آمریکا هدایت کشتی‌ها از طریق تنگه هرمز را از سر گرفت. @IranianMinds
+</div>
+
+## Dirty_Kids — post 390244
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390244_1779810840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+این چه شکل و قیافه‌ایه؟
+ابرو هاشونو باید با ماشین چمن زنی کوتاه کنی
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390243
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390243_1779810840.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بادبان با همراهی شما 90 هزار نفری شد!
+🎉
+
+
+🛒به این مناسبت، قیمت سرویس‌ها تا گیگی 150 هزار تومان کاهش پیدا کرد! 
+🚀
+
+
+🎁 کد تخفیف خرید اول دوباره ریست شد و همه میتونن ازش استفاده کنن:
+BadBan4k
+
+
+💸 با این کد، 50 هزار تومان تخفیف روی اولین خریدت بگیر!
+
+
+🔥و مهم‌تر از همه...
+سیستم معرفی بادبان فعال‌تر از همیشه‌ست!
+از تمام خریدهای کاربرانی که معرفی میکنی، 10% خریدشون رو پورسانت دائمی دریافت کن و موجودی کیف پولت رو افزایش بده 
+💼
+
+وقتی بادبان داری،
+هیچ بادی مانع نیست… حتی وقتی اینترنت ملیه
+⛵️
+
+G5
+
+🛡@BadBan_VPN | کانال 
+
+🤖@BadBan_VPNBot | ربات 
+
+📞@BadBan_VPNSupport | پشتیبانی
+</div>
+
+## alonews — post 122859
+
+<div align="center">
+  <a href="telegram/content/alonews_122859_1779810841.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈عزیمت ترامپ از کاخ سفید به بیمارستان
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122858
+
+<div align="center">
+  <a href="telegram/content/alonews_122858_1779810843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه آمریکایی سی ان در گزارشی نوشت، ذخایر اورانیوم و غنی‌سازی ایران، دارایی‌های مسدود شده و جنگ در لبنان موضوعات اصلی هستند که هرگونه توافق یا عدم توافق میان تهران و واشنگتن را شکل می‌دهند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122857
+
+<div align="center">
+  <a href="telegram/content/alonews_122857_1779810843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان در گفت‌وگو با رئیس‌جمهور مصر: رویکرد ما همگرایی با کشورهای منطقه است / اقدامات ایران در چارچوب دفاع مشروع بوده است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122856
+
+<div align="center">
+  <a href="telegram/content/alonews_122856_1779810843.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پزشکیان در گفت‌وگو با امیر قطر: ایران برای دستیابی به «چارچوب عزتمندانه» پایان جنگ و تنش در منطقه آمادگی دارد / شیخ تمیم: قطر از هیچ تلاشی برای صلح و ثبات فروگذار نمی‌کند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/05 19:13
 ---
 
