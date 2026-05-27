@@ -7,6 +7,33 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 05:22
+---
+
+## FoxNewsTwitter — post 342295
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342295_1779846753.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+“We just sent a Texas-sized message to Washington.”
+
+Texas AG Ken Paxton speaks after defeating Sen. John Cornyn in Texas’ Republican Senate primary runoff, calling the victory a mandate for change inside the GOP.
+
+Paxton now faces Democrat James Talarico in a race that is among a handful that could decide if the Republicans hold their slim 53-47 majority in the Senate.
+</div>
+
+## FarsiVOA — post 218767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️پرزیدنت ترامپ در آستانه تصمیم‌گیری مهمی درباره ایران؛ گفت‌وگو با محمد قائدی
+@FarsiVOA
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 05:12
 ---
 
