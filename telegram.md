@@ -7,6 +7,178 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 20:53
+---
+
+## WithYashar — post 12715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اتاق جنگ با یاشار : هیچوقت انقدر مشتاق نبودم حجاج هر چه سریعتر سلامت برگردن خونه هاشون 😅
+</div>
+
+## WithYashar — post 12714
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش دقیقاً داره حرف تو پیش میره موج مکزیکی 😂
+</div>
+
+## WithYashar — post 12713
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+داداش دقیقاً داره حرف تو پیش میره موج مکزیکی 😂
+</div>
+
+## WithYashar — post 12712
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترامپ: دارن کم‌کم شروع می‌کنن چیزهایی رو که باید بهمون بدن، تحویل بدن. اگه این کار رو بکنن، خیلی خوبه.
+اگه نکنن، هگست کارشون رو تموم می‌کنه.
+ما درباره هیچ‌گونه کاهش تحریم‌ها یا دادن پول صحبت نمی‌کنیم.
+وقتی اونا درست رفتار کنن و کار درستو بکنن بهشون جازه می‌دیم به پولشون برسن
+@withyashar
+</div>
+
+## WithYashar — post 12711
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار: آیا با این موضوع راحت خواهید بود که روسیه یا چین اورانیوم غنی‌شده ایران را بگیرند؟
+
+ترامپ: نه(زیر دلم درد میگیره)
+@withyashar 🤣
+</div>
+
+## FoxNewsTwitter — post 342317
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342317_1779902614.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump says gas prices will "come down a lot" shortly after the Iran "excursion" ends, while slamming California for its high prices and taxes.
+
+"It'll come down to where it was before."
+</div>
+
+## IranIntlTV — post 339276
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339276_1779902616.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آلکسیا پوتیاس، برنده دو توپ طلای فوتبال زنان، پس از ۱۴ فصل حضور در باشگاه بارسلونا، از جمع آبی‌اناری‌ها جدا شد. باشگاه بارسلونا مراسم خداحافظی این بازیکن مطرح فوتبال زنان را در ورزشگاه نیوکمپ برگزار کرد و پوتیاس از این تیم جدا شد.
+
+🔹پوتیاس اعلام کرد هنوز درباره تیم بعدی‌اش تصمیم نگرفته و پس از ۱۴ سال پرافتخار، تابستان امسال بارسلونا را ترک خواهد کرد. ستاره ۳۲ ساله اسپانیایی در مراسم خداحافظی‌اش در نوکمپ گفت: «فوتبالم ادامه دارد، اما بهترین بخش دوران حرفه‌ای من حالا تمام شده است.»
+
+🔹برنده دو توپ طلای فوتبال زنان تاکید کرد هیچ تجربه‌ای با دوران حضورش در بارسا قابل مقایسه نیست: «هم‌تیمی‌ها، هواداران و این باشگاه همیشه خاص‌ترین بخش زندگی حرفه‌ای من خواهند بود.»
+
+🔹پوتیاس چهارشنبه آخرین بازی‌اش را برای بارسلونا انجام می‌دهد. او در این ۱۴ سال ۳۸ جام از جمله ۱۰ قهرمانی لیگ اسپانیا و چهار لیگ قهرمانان اروپا کسب کرد و با بیش از ۵۰۰ بازی و ۲۳۲ گل، به یکی از بزرگ‌ترین اسطوره‌های تاریخ باشگاه تبدیل شد.
+
+@iranintltvsport
+</div>
+
+## FarsiVOA — post 218821
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پوسترهای اعتراضی علیه برنامه هسته‌ای و موشکی جمهوری اسلامی در نقاط مختلف بازار تهران نصب و پخش شده‌اند. معترضان، حکومت را مسئول فشار اقتصادی، تحریم‌ها و بحران معیشتی می‌دانند؛ اعتراضی کم‌سابقه از قلب یکی از پایگاه‌های سنتی حکومت.
+</div>
+
+## Persian_Trend_Official — post 15142
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_15142_1779902617.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ: از روند مذاکرات با ایران راضی نیستیم؛ گزینه نظامی همچنان روی میز است.
+
+▪️ وی اعلام کرد واشینگتن از روند فعلی مذاکرات با ایران رضایت ندارد.
+▪️ او هشدار داد اگر توافق «قابل‌قبولی» حاصل نشود، آمریکا ممکن است دوباره به اقدام نظامی متوسل شود
+▪️ ترامپ تأکید کرده ایران باید به‌صورت شفاف از دستیابی به سلاح هسته‌ای صرف‌نظر کند و مذاکرات فعلی هنوز به سطح مطلوب آمریکا نرسیده است
+
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 20883
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20883_1779902617.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ :
+
+ما اصلا درمورد کاهش تحریم یا دادن پول به ایران هیچ صحبتی نمیکنیم هر زمانی که آدم شدن و نشون دادن رفتارشون خوبه شاید در مورد پولاشون یه فکری کردم.
+
+@IranianMinds
+</div>
+
+## alonews — post 123120
+
+<div align="center">
+  <a href="telegram/content/alonews_123120_1779902619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / ترامپ: می‌خواهم عربستان سعودی، امارات، قطر و دیگران به توافقنامه‌های ابراهیم بپیوندند
+
+
+🔴آنها «به ما بدهکارند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123119
+
+<div align="center">
+  <a href="telegram/content/alonews_123119_1779902619.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزیر جنگ آمریکا: آنها ممکن است موشک داشته باشند، اما در حال حاضر نمی‌توانند موشک‌های بیشتری بسازند. نمی‌توانند پهپادهای بیشتری بسازند. نمی‌توانند کشتی‌های بیشتری بسازند
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123118
+
+<div align="center">
+  <a href="telegram/content/alonews_123118_1779902620.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ: به درخواست نخست وزیر و فرمانده ارتش پاکستان، به ایران فرصت کوتاهی خواهیم داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123117
+
+<div align="center">
+  <a href="telegram/content/alonews_123117_1779902620.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ترامپ : ما چند ماهه داریم این کار رو انجام می‌دیم
+
+
+🔴 جنگ ویتنام ۱۹ سال طول کشید،بین دو جنگ، ما ۱۳ نفر رو از دست دادیم
+
+
+🔴 این خیلی چیز وحشتناکیه، ولی اگر به تلفات جنگ ویتنام و جنگ‌های دیگه نگاه کنید، اون‌ها صدها هزار نفر از دست دادن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 20:43
 ---
 
