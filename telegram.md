@@ -7,6 +7,103 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 01:43
+---
+
+## WithYashar — post 12745
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+صدای سه انفجار در بندرعباس دوباره
+@withyashar
+</div>
+
+## WithYashar — post 12744
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گزارشهای ززززیاد از انفجار در بندر عباس
+@withyashar
+</div>
+
+## IranIntlTV — post 339311
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339311_1779919983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مراد ویسی، تحلیل‌گر ارشد ایران‌اینترنشنال، گفت: «در جریان جنگ، ده‌ها مقام ارشد جمهوری اسلامی از جمله فرماندهان نظامی و امنیتی کشته شده‌اند. فرماندهان سپاه، ستاد کل و قرارگاه خاتم‌الانبیا در سطوح بالای حکومت کشته شدند، اما جمهوری اسلامی با وجود ادعاهای زیاد حتی قادر به کشتن هیچ‌یک از نیروهای ارشد اسرائیلی و آمریکایی نشد. این مشخص می‌کند چه کسی دست بالا را داشت و چه کسی دست پایین را.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339310
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339310_1779919984.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مارکو روبیو، وزیر خارجه آمریکا، گفت: «اگر یک چیز را تحولات اخیر دوباره ثابت کرده باشد، این است که ایران نباید به سلاح هسته‌ای دست پیدا کند. ایران همچنان بزرگ‌ترین حامی تروریسم در جهان است و نباید سلاح هسته‌ای داشته باشد.»
+
+او افزود: «اگر توافق امکان‌پذیر باشد، ما می‌خواهیم به آن برسیم. اگر این مسیر جواب ندهد، گزینه‌های دیگری هم وجود دارد.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 339309
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339309" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی سیاست با مراد ویسی: وقتی شما نبودید
+@iranintlTV
+</div>
+
+## alonews — post 123187
+
+<div align="center">
+  <img src="telegram/content/alonews_123187_1779919986.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهترین سرعت با بهترین قیمت با God Vpn🔵
+تخفیف ویژه برای امشب فقط✅✅
+
+10 گیگ فقط 150,000 تومن😍
+بقیه قیمت ها در ربات👍✅😍
+
+❌قیمت در حالت عادی گیگی
+10 گیگ 250,000❌
+
+✅تضمین بدون قطعی
+🌐 اتصال با تمامی دستگاه
+🔻🏪پشتیبانی ۲۴ ساعته
+✔️ دور زدن نت ملی
+🔘 بالاترین سرعت با تمام اپراتورها
+⭐با کیفیت عالی و ضمانت بازگشت وجه
+🌐🌐🌐🌐🌐🌐⭐️
+➖➖➖➖➖➖➖➖➖➖
+ربات تلگرام جهت خرید لحظه ای:
+@V2rayPc1bot
+
+ایدی کانال:
+t.me/God_of_Vpn
+پشتیبانی و خرید عمده:
+@Pc_V2ray
+@Mmkhh00
+</div>
+
+## alonews — post 123186
+
+<div align="center">
+  <a href="telegram/content/alonews_123186_1779919987.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈هم اکنون حمله به اسرائیل بندر صور
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 01:33
 ---
 
