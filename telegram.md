@@ -7,6 +7,176 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 18:22
+---
+
+## WithYashar — post 12689
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید یه یا موسی کامنت کنین بی بی و پسرش و زنش رو تگ کنین امشب بزنه 🤣💥💥🌶️🌶️ https://www.instagram.com/reel/DY2Hk4hoW2r/?igsh=MXYyMDlxdjY5b3QwZg==
+</div>
+
+## WithYashar — post 12688
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید گزارش‌های مربوط به تفاهم‌نامه ایران را کاملاً ساختگی خواند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342301
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @AmericaNewsroom: 🚨HIGH-STAKES MEETING: President Trump now set to gather his cabinet at the White House amid tense negotiations with Iran. The President says the U.S. will either agree to a good deal, or no deal at all.
+
+@TreyYingst reports.
+</div>
+
+## pm_afshaa — post 91657
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴مهر: یک ساختمان اداری در فرودگاه امام خمینی آتش گرفت
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91656
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ترولیتر 
+😈
+🔥
+
+میم 
+✔ توییت 
+✔ خبر 
+✔ پروکسی رایگان
+✔
+
+همین الان جوین شو و آنلاین بمون 
+👇
+👇
+
+https://t.me/trolliter
+https://t.me/trolliter
+</div>
+
+## IranIntlTV — post 339251
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339251_1779893557.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سرخط خبرهای چهارشنبه ۶ خرداد
+@iranintltv
+</div>
+
+## FarsiVOA — post 218808
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218808_1779893559.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در میدان پرسیدیم: آیا زیستن در سایه جنگ و در برابرِ حکومتی که دشمن زندگی است به معنای زندگی نکردن است؟ چرا هر نشانه‌ای از زندگی به عادی‌سازی تعبیر می‌شود؟ سمانه سوادی، حقوق‌دان پاسخ می‌دهد
+</div>
+
+## Persian_Trend_Official — post 15129
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15129_1779893559.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حادثه در بزرگترین مجتمع پتروشیمی ایران در عسلویه
+
+۱ نفر جان باخت و ۲ تن مصدوم شدند.
+
+‌روابط عمومی شرکت دماوند انرژی عسلویه:
+
+‌ ظهر امروز چهارشنبه ششم  خرداد ماه ۱۴۰۵ در ساعت ۱۱:۳۵ ، حادثه‌ای در واحد هوای این شرکت رخ داد که متأسفانه منجر به جان‌باختن یکی از کارکنان و مصدومیت دو نفر دیگر شد.
+</div>
+
+## Persian_Trend_Official — post 15128
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15128_1779893560.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🇺🇸
+🇺🇸 پست جدید ترامپ در تروث سوشال:
+</div>
+
+## RadioFarda — post 157612
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157612_1779893560.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸هلند یک کشتی مین‌روب را به دریای مدیترانه اعزام می‌کند. بر اساس نامۀ دو عضو ارشد دولت هلند که روز چهارشنبه به پارلمان این کشور ارسال شد، این اقدام برای مشارکت در عملیات احتمالی پیمان ناتو در تنگۀ هرمز پس از پایان جنگ ایران در نظر گرفته شده است.
+
+🔸بر اساس نامۀ وزرای دفاع و خارجۀ هلند، کشتی مین‌روب همین هفته راهی مدیترانه شده و از حدود دو هفتۀ دیگر برای مشارکت در عملیات ناتو آماده خوهد بود. در این نامه آمده که هلند برای بر عهده‌گرفتن نقشی با هدف تضمین ایمنی تردد کشتی‌ها در خلیج فارس آماده می‌شود.
+
+🔸در نامۀ وزیران هلندی به پارلمان تأکید شده که یکی از گزینه‌های در نظر گرفته‌شده برای مشارکت هلند، استقرار یک تیم ترکیبی، برای جست‌وجو، غواصی، شناسایی و از بین‌بردن ایمن تجهیزات انفجاری خواهد بود.
+
+🔸در این نامه آمده که هلند همزمان در حال بررسی امکان اعزام نیرو برای مشارکت در عملیات احتمالی یک ائتلاف بین‌المللی در منطقه است.
+
+@RadioFarda
+</div>
+
+## BBCPersian — post 282194
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رسانه‌های ایران: تهران پیش‌نویس اولیه و غیررسمی تفاهم با آمریکا را دریافت کرده است
+
+🔻رسانه‌های حکومتی ایران اعلام کردند که تهران «پیش‌نویس اولیه و غیررسمی چارچوب یک یادداشت تفاهم با آمریکا را دریافت کرده است.»
+
+بر اساس این گزارش‌ها، ایران ظرف یک ماه عبور و مرور تجاری از تنگه هرمز را به سطح پیش از جنگ بازمی‌گرداند و در مقابل، آمریکا نیروهای نظامی خود را از اطراف ایران خارج و محاصره دریایی را لغو خواهد کرد.
+
+این گزارش همچنین حاکیست که هماهنگی در مورد مدیریت مسیر کشتی‌ها با ایران و عمان انجام خواهد شد.
+
+علی باقری کنی، معاون سیاست خارجی و امنیت بین‌الملل دبیرخانه شورای عالی امنیت ملی ایران، هم تایید کرده است که ایران و عمان به‌طور مشترک در حال مذاکره در مورد رویه جدیدی برای عبور کشتی‌ها از تنگه هرمز هستند.
+
+به گفته او «شرایط و رویه‌های عبور از تنگه هرمز کاملا متفاوت از شرایط قبل از شروع درگیری بر سر ایران خواهد بود.»آقای باقری کنی همچنین گفت: «تا زمانی که در مورد همه مسائل به توافق نرسیم، فکر می‌کنیم که در مورد هیچ چیز به توافق نرسیده‌ایم.»
+
+https://bbc.in/3PLvJI4
+@BBCPersian
+</div>
+
+## alonews — post 123079
+
+<div align="center">
+  <a href="telegram/content/alonews_123079_1779893561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه ۱۲ اسرائیل :
+ترامپ اجازه حمله به بیروت رو داد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123077
+
+<div align="center">
+  <a href="telegram/content/alonews_123077_1779893561.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈حملات اسرائیل به حزب الله ادامه دارد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 18:12
 ---
 
