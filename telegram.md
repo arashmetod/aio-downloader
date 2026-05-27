@@ -7,6 +7,232 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/06 18:33
+---
+
+## VahidOOnLine — post 242440
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242440_1779894195.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز در پیامی به ایران‌اینترنشنال درباره وضعیت معیشتی می‌گوید که نمی‌تواند از پدرش بخواهد چیزی برایش بخرد. پیام او با هوش مصنوعی خوانده شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242439
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242439_1779894196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️میثم ظهوریان، نماینده مجلس شورای اسلامی از مشهد، با انتشار متنی در شبکه اجتماعی اکس از جزئیات یک پیش‌نویس ۱۱ بندی مرتبط با مذاکرات ایران و آمریکا خبر داده است؛ محوری که به گفته او چارچوب اولیه یک تفاهم در حال بررسی را ترسیم می‌کند.
+
+بر اساس بندهای منتشرشده، ایران متعهد می‌شود به سمت ساخت سلاح هسته‌ای نرود و درباره سرنوشت ذخایر اورانیوم، سطح غنی‌سازی و سایر موضوعات مرتبط با برنامه هسته‌ای، یک چارچوب مورد توافق دو طرف شکل بگیرد. همچنین در این پیش‌نویس آمده است که برنامه هسته‌ای ایران در طول مذاکرات «تعلیق» خواهد شد و در مقابل، آمریکا نیز از افزایش تحریم‌ها خودداری می‌کند.
+
+در بخش دیگری از این متن، اعلام خاتمه جنگ از جمله در لبنان و عدم استفاده از زور علیه یکدیگر، احترام به حاکمیت و تمامیت ارضی طرفین و تعیین یک بازه ۶۰ روزه قابل تمدید برای نهایی‌سازی توافق مطرح شده است.
+
+این پیش‌نویس همچنین شامل رفع محاصره دریایی ظرف ۳۰ روز، خروج نیروهای آمریکایی از «محیط پیرامونی ایران» و باز شدن تنگه هرمز توسط ایران در همین بازه زمانی است؛ هرچند تعریف دقیقی از محدوده «محیط پیرامونی ایران» ارائه نشده است.
+
+در بندهای اقتصادی نیز به وعده یک برنامه بازسازی ۳۰۰ میلیارد دلاری برای ایران، خاتمه تدریجی تحریم‌های اولیه و ثانویه، معافیت فروش نفت و پتروشیمی ایران و آزادسازی تدریجی وجوه مسدود شده ایران در صورت پیشرفت مذاکرات اشاره شده است.
+
+این در حالی است که ظهر روز چهارشنبه صداوسیما نیز اعلام کرد به یک سند غیررسمی اولیه از چارچوب ۱۴ بندی تفاهم احتمالی میان ایران و آمریکا دسترسی پیدا کرده است؛ سندی که هنوز نهایی نشده اما در آن به موضوعاتی از جمله وضعیت تنگه هرمز و حضور نظامی آمریکا در منطقه اشاره شده است.
+
+طبق گزارش صداوسیما، آمریکا در این پیش‌نویس متعهد به خروج نیروهای نظامی از اطراف ایران و توقف محاصره دریایی شده و در مقابل، ایران نیز بازگشت عبور کشتی‌های تجاری از تنگه هرمز به سطح پیش از جنگ را ظرف یک ماه پذیرفته است. همچنین مدیریت تردد کشتی‌های تجاری در تنگه هرمز با همکاری ایران و عمان پیش‌بینی شده و تأکید شده بدون سازوکار راستی‌آزمایی، هیچ اقدام عملی از سوی تهران انجام نخواهد شد.
+
+در این گزارش آمده است که در صورت دستیابی به توافق نهایی ظرف ۶۰ روز، امکان تبدیل آن به قطعنامه الزام‌آور در شورای امنیت سازمان ملل نیز مطرح شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242438
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242438_1779894196.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید اعلام کرد گزارش رسانه‌های جمهوری اسلامی درباره بندهای تفاهم‌نامه احتمالی صحت ندارد و کاملا ساختگی است.
+کاخ سفید افزود نباید به مطالب منتشرشده از سوی رسانه‌های جمهوری اسلامی اعتماد کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12690
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12690_1779894197.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ماهواره‌ای از پایگاه هوایی رامشتاین در آلمان، ده‌ها فروند هواپیمای ترابری C-17A و C-5M نیروی هوایی ایالات متحده، چندین فروند هواپیمای ترابری C-130 و حداقل 10 فروند تانکر KC-135R را نشان می‌دهد که در آنجا مستقر شده‌اند.
+
+در اتاق جنگ گفتم که رامشتاین مهم‌ترین پایگاه ایالات متحده در اروپا برای جنگ ایران است و به عنوان یک قطب لجستیکی کلیدی عمل می‌کند.
+@withyashar
+</div>
+
+## mwarmonitor — post 9819
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📌 تندروهای افراطی در ایران به مذاکره‌کنندگان به‌دلیل مذاکرات با آمریکا حمله کرده‌اند. فیننشال تایمز
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9818
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سخنگوی کاخ سفید: گزارش رسانه‌های ایرانی درباره «یادداشت تفاهم» نادرست بوده و به‌طور کامل ساختگی است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9817
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸رئیس‌جمهور ترکیه، رجب طیب اردوغان، در حال تلاش است تا هم‌زمان با برگزاری مسابقه فوتبال جام جهانی میان تیم‌های ترکیه و آمریکا در لس‌آنجلس ماه آینده، دیداری با دونالد ترامپ ترتیب دهد. بلومبرگ
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342303
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: President Trump jokingly congratulates the Democrats for longtime Texas congressman and Trump critic Al Green losing his house seat in last night's Texas primary.
+
+"I will miss that lunatic not screaming and violently waving his cane at me during my next State of the Union Speech."
+</div>
+
+## FoxNewsTwitter — post 342302
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342302_1779894198.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @FoxNewsEnt: Russell Crowe confronts swarming autograph seekers outside his Paris hotel, laying down ground rules before signing a single item. 'As soon as somebody's a d---, I'm going. You got me? Clear?' The moment split the internet — some called him 'very disrespectful,' others praised him for setting boundaries while still signing for every fan in the crowd.
+
+🎥: Best Image / BACKGRID
+</div>
+
+## IranIntlTV — post 339255
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339255_1779894199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک دانش‌آموز در پیامی به ایران‌اینترنشنال درباره وضعیت معیشتی می‌گوید که نمی‌تواند از پدرش بخواهد چیزی برایش بخرد. پیام او با هوش مصنوعی خوانده شده است.
+</div>
+
+## IranIntlTV — post 339254
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339254_1779894200.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث‌سوشال پستی را بازنشر کرد که با استناد به گزارشی از اورشلیم‌پست، از افزایش موارد آزار و خشونت جنسی در زندان‌های ایران پس از موج بازداشت‌های گسترده با شروع جنگ خبر می‌دهد.
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339253
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339253_1779894202.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ در تروث‌سوشال پستی را بازنشر کرد که با استناد به گزارشی از اورشلیم‌پست، از افزایش موارد آزار و خشونت جنسی در زندان‌های ایران پس از موج بازداشت‌های گسترده با شروع جنگ خبر می‌دهد.
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339252
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339252_1779894204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کاخ سفید اعلام کرد گزارش رسانه‌های جمهوری اسلامی درباره بندهای تفاهم‌نامه احتمالی صحت ندارد و کاملا ساختگی است.
+کاخ سفید افزود نباید به مطالب منتشرشده از سوی رسانه‌های جمهوری اسلامی اعتماد کرد.
+https://iranintl.com/202605274908
+</div>
+
+## FarsiVOA — post 218809
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ نقض حقوق زندانیان سیاسی زن در جمهوری اسلامی را برجسته کرد
+</div>
+
+## DW_Farsi — post 125204
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 نقش یک شرکت در امارات در خرید تجهیزات ماهواره‌ای چینی برای ایران
+
+بنا به گزارش‌ها، سپاه پاسداران از یک شرکت مستقر در امارات متحده عربی برای خرید تجهیزات ماهواره‌ای پیشرفته چینی استفاده کرده است و بعدا در جنگ، حملاتی را علیه اهداف اماراتی انجام داده است.
+@dw_farsi
+</div>
+
+## IranianMinds — post 20874
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴کاخ سفید:
+
+گزارش‌های تلویزیون ایران درباره یادداشت تفاهم، کاملا نادرست و جعلی است.
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282196
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282196_1779894204.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻در پی بازگشت تدریجی دسترسی به اینترنت جهانی در ایران از روز سه‌شنبه ۵ خرداد ۱۴۰۵، داده‌های شرکت کنتیک (Kentik) نشان می‌دهد که حجم ترافیک اینترنت بین‌الملل پس از هفته‌ها محدودیت شدید، تا حد قابل توجهی افزایش یافته است، هرچند همچنان فاصله زیادی با سطح عادی پیش از آغاز قطع اینترنت در دی‌ماه دارد.
+
+داگ مادوری، مدیر تحلیل اینترنت در شرکت کنتیک، می‌گوید: «سطح ترافیک در بالاترین حالت به حدود ۳۹ درصد حجم پیش از اعتراضات رسیده است؛ رقمی که به سطح دسترسی در دوره بازگشایی نسبی میان ۷ بهمن تا ۹ اسفند نزدیک است. در آن دوره، خدمات اینترنت ناپایدار و بی‌ثبات بود و محدودیت‌ها روزانه تغییر می‌کردند.»
+
+او اضافه می‌کند: «ما هنوز فاصله زیادی با سطح خدمات پیش از ۱۸ دی داریم. این فقط یک تصویر کلی از وضعیت ترافیک است و ممکن است برخی خدماتی که آن زمان در دسترس بودند، همچنان مسدود باشند.»
+
+گزارش‌های رسیده و تجربیات کاربران حاکی است که دسترسی به برخی خدمات امکان‌پذیر شده است هرچند ارتباط با ثبات نیست و از جمله، تماس‌های صوتی- تصویری، کیفیت بالایی ندارند.
+
+https://bbc.in/4uvLBh7
+@BBCPersian
+</div>
+
+## BBCPersian — post 282195
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282195_1779894205.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻اولیویا ویلز، سخنگوی کاخ سفید، در واکنش به انتشار گزارش‌ رسانه‌های ایران درباره پیش‌نویس یادداشت تفاهم میان ایران و آمریکا، گفت: «همان‌طور که رئیس‌جمهور ترامپ گفته است، مذاکرات به‌خوبی در حال پیشرفت است و او خطوط قرمز خود را به‌روشنی مشخص کرده است.»
+
+پیشتر رسانه‌های حکومتی ایران اعلام کردند که تهران «پیش‌نویس اولیه و غیررسمی چارچوب یک یادداشت تفاهم با آمریکا را دریافت کرده است.»
+
+بر اساس این گزارش‌ها، ایران ظرف یک ماه عبور و مرور تجاری از تنگه هرمز را به سطح پیش از جنگ بازمی‌گرداند و در مقابل، آمریکا نیروهای نظامی خود را از اطراف ایران خارج و محاصره دریایی را لغو خواهد کرد.
+
+خانم ویلز بدون تایید یا رد این گزارش‌ها گفت که «رئیس‌جمهور ترامپ تنها توافقی را خواهد پذیرفت که برای مردم آمریکا توافقی خوب باشد و تضمین کند ایران هرگز به سلاح هسته‌ای دست پیدا نکند.»
+
+📷Courtesy: TCU News
+https://bbc.in/4tYo1Z8
+
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/06 18:22
 ---
 
