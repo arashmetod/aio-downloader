@@ -7,6 +7,65 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 00:42
+---
+
+## FoxNewsTwitter — post 342364
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342364_1780002748.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A calm poolside moment turned terrifying in seconds.
+
+A little girl lost her balance and slipped underwater, but her dad’s reflexes kicked in instantly, pulling her back to safety before the moment turned tragic.
+</div>
+
+## alonews — post 123401
+
+<div align="center">
+  <a href="telegram/content/alonews_123401_1780002750.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سوخت رسان KC3 بریتانیا برفراز عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123400
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇 💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر ⚡️ 🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍 @NetAazaadBot @NetAazaadBot 😍آف فقط برای امشب😍 ❌ گیگی 50T ❌ ✅ فقط گیگی 25T ✅ @NetAazaadBot @NetAazaadBot 🔥 یه…
+</div>
+
+## alonews — post 123399
+
+<div align="center">
+  <img src="telegram/content/alonews_123399_1780002750.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚀مصرف بالا؟ حجم‌خوری زیاد؟ اینو ببین 👇
+💎 همراه با ساب یعنی مصرف بهینه‌تر و تجربه بهتر
+⚡️
+🚀 سرعت عالی پایدار برای استفاده روزانه و بلند مدت😍😍
+
+@NetAazaadBot
+@NetAazaadBot
+
+😍آف فقط برای امشب😍
+❌ گیگی 50T ❌
+✅ فقط گیگی 25T ✅
+
+@NetAazaadBot
+@NetAazaadBot
+🔥 یه بار امتحان کن، خودت تفاوتشو حس می‌کنی✅
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 00:32
 ---
 
