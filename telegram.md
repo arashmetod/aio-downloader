@@ -7,6 +7,205 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 11:42
+---
+
+## VahidOOnLine — post 242541
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242541_1779955962.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوالفضل ابوترابی، نماینده نجف‌آباد در مجلس، به سایت دیده‌بان ایران، گفت: «تمام خطوط قرمز رهبری از تنگه هرمز، مسئله هسته‌ای و گرفتن غرامت، در مذاکرات نقض شده است.»
+
+ابوترابی، گفت: «دارند با آبنبات چوبی صندوق ۳۰۰ میلیاردی و بدون ضمانت اجرایی، ما را فریب می‌دهند.»
+
+او افزود: «تنگه هرمز بدهیم تا ۱۲ میلیارد دلار پول خودمان را با خفت و خواری بگیریم؟ اگر ما تنگه هرمز را باز کردیم، چه تضمینی وجود دارد که آنها دوباره محاصره را شروع نکنند؟ هیچ تضمینی.»
+
+این نماینده مجلس در پایان گفت: «آمریکا بعد از جام جهانی و انتخابات کنگره، دوباره به ما حمله می‌کند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12779
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12779_1779955963.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حجم ترافیک اینترنت بین‌الملل، تا ساعت ۷ و نیم صبح امروز به ۵۳ درصد حجم پیش از دی‌ماه ۱۴۰۴ رسیده است
+@withyashar
+حرفم که گفتم اینترنت فقط با رفتن اینا به حالت قبل بر‌میگرده هنوز پا برجاست !
+</div>
+
+## DEJradio — post 5048
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5048_1779955964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨📢 در پی حملات سـ.ـپاه پاسداران به کشتی‌های تجاری در تنگه هرمز، آمریکا یک سایت نظامی در جنوب ایران را هدف حمله قرار داد. ارتش آمریکا همچنین چندین پهپاد ایرانی را رهگیری و منهدم کرد.
+منابع محلی می‌گویند بامداد پنجشنبه ۱۷ خرداد، صدای سه انفجار در شرق بندرعباس شنیده شد. در پی این حملات پدافند بندرعباس فعال شد.
+
+خبرگزاری تسنیم گزارش داد نیروی دریایی سـ.ـپاه به سمت یک نفتکش شلیک کرده است. ادعا شد نفتکش آمریکایی سیستم راداری خود را خاموش کرده بود و قصد عبور از تنگه هرمز را داشت. برخی منابع از جمله آکسیوس گزارش دادند که سه الی چهار پهپاد به سمت این کشتی پرتاب شد. همچنین سـ.ـپاه ادعا کرد یک پایگاه آمریکایی در منطقه هدف قرار گرفته است.
+
+ارتش کویت اعلام کرد چند پهپاد و موشک را در آسمان رهگیری کرده است. بعضی از آنها به زمین اصابت کردند.
+طی یک هفته گذشته این سومین بار است که درگیری‌ها در خلیج فارس بالا می‌گیرد.
+
+#تنگه_هرمز #جنگ
+@DEJradio
+</div>
+
+## DEJradio — post 5047
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5047_1779955964.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺📢 شهرام سبزواری کارشناس نظامی توضیح می‌دهد که برخلاف ادعای مقامات در مورد عقب‌نشینی آمریکا و اسرائیل و نمایش پیروزی، نیروهای مسلح و ساختار نظامی- امنیتی جمهوری اسلامی ضربات سنگینی در جنگ ۴۰ روزه دریافت کرده است و وضعیت نیروی انسانی و پرسنل بحرانی است.
+
+#جنگ۴۰روزه
+@DEJradio
+</div>
+
+## DEJradio — post 5046
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5046_1779955965.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨
+⭕️ حامیان حکومت در لندن، یک ایرانی به نام امیرحسین ترکان را روبه‌روی دیوار یادبود در "گولدرز گرین" با ماشین زیر گرفتند.
+
+گفته می‌شود یک آخوند راننده ماشین بود. تحقیقات پلیس ادامه دارد.
+
+#لندن
+@DEJradio
+</div>
+
+## DEJradio — post 5045
+
+<div align="center">
+  <a href="telegram/content/DEJradio_5045_1779955967.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨🎥 مخاطبان دژ روز پنجشنبه ۲۶ خرداد ویدیویی از آتش‌سوزی در پارک بانوان سه‌راه افسریه تهران ارسال کردند. علت آتش‌سوزی مشخص نیست. گزارش شد گشتی‌های امنیتی به سمت آن محل در حرکت بودند.
+
+*محل استقرار نیروهای سرکوب بوده که اول فروردین ۱۴۰۵ هدف قرار گرفت.
+
+#نیروهای_سرکوب #آتشسوزی
+@DEJradio
+</div>
+
+## IranIntlTV — post 339358
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339358_1779955968.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کره‌ جنوبی اعلام کرد پس از پایان تحقیقات درباره حمله به یک کشتی تجاری این کشور در تنگه هرمز، جمهوری اسلامی مسئول شناخته شده است. دولت کره‌ جنوبی همچنین گفت سئول رویکرد سخت‌گیرانه‌تری در قبال تهران در پیش خواهد گرفت.
+
+توماج طاهباز، خبرنگار ایران‌اینترنشنال، گزارش می‌دهد
+@iranintltv
+</div>
+
+## IranIntlTV — post 339357
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339357_1779955970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابوالفضل ابوترابی، نماینده نجف‌آباد در مجلس، به سایت دیده‌بان ایران، گفت: «تمام خطوط قرمز رهبری از تنگه هرمز، مسئله هسته‌ای و گرفتن غرامت، در مذاکرات نقض شده است.»
+
+ابوترابی، گفت: «دارند با آبنبات چوبی صندوق ۳۰۰ میلیاردی و بدون ضمانت اجرایی، ما را فریب می‌دهند.»
+
+او افزود: «تنگه هرمز بدهیم تا ۱۲ میلیارد دلار پول خودمان را با خفت و خواری بگیریم؟ اگر ما تنگه هرمز را باز کردیم، چه تضمینی وجود دارد که آنها دوباره محاصره را شروع نکنند؟ هیچ تضمینی.»
+
+این نماینده مجلس در پایان گفت: «آمریکا بعد از جام جهانی و انتخابات کنگره، دوباره به ما حمله می‌کند.»
+https://iranintl.com/202605280587
+</div>
+
+## DW_Farsi — post 125215
+
+<div align="center">
+  <a href="telegram/content/DW_Farsi_125215_1779955970.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎥 یک کانگوروی بازیگوش تحت تعقیب پلیس تگزاس
+
+یک کانگورو به اسم بینگوس از یک مرکز حفاظت از حیات وحش در منطقه ویکو در ایالت تگزاس فرار کرد. بینگوس پس از تعقیب و گریزی کوتاه توسط مأموران پلیس، در سلامت کامل به مرکز حفاظت حیات وحش بازگردانده شد.
+
+@dw_farsi
+</div>
+
+## IranianMinds — post 20925
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20925_1779955973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 یک مقام وزارت بهداشت :
+
+بمولا رهبرمون هیچیش نشد ی چن تا خراش بود فقط اخبارای کذبو‌ اصلا باور نکنید ، آقا موشتبی حتی روزه هم میگرفت تو ماه رمضان.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20924
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20924_1779955973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 سازمان ملل اسرائیل را به فهرست سیاه مربوط به خشونت جنسی مرتبط با درگیری‌ ها اضافه کرد.
+
+@IranianMinds
+</div>
+
+## alonews — post 123230
+
+<div align="center">
+  <a href="telegram/content/alonews_123230_1779955974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وزارت دفاع چین درباره وضعیت خاورمیانه: گفتگو و مذاکره تنها راه حل بحران است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123229
+
+<div align="center">
+  <a href="telegram/content/alonews_123229_1779955974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کایا کالاس، مسئول سیاست خارجی اتحادیه اروپا: بازگشت به جنگ به نفع هیچکس نیست!
+
+
+🔴«آنها [آمریکا و ایران] در حال حاضر در این منطقه بسیار خطرناک بین جنگ و صلح قرار دارند، و ادامه این جنگ به نفع هیچکس نیست.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123228
+
+<div align="center">
+  <a href="telegram/content/alonews_123228_1779955974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس به نقل از مقام ارشد امریکایی مدعی شد: ایران چهار پهپاد حمله‌ای یک‌طرفه را به سمت یک ناو نیروی دریایی آمریکا و یک کشتی تجاری پرتاب کرد
+
+
+🔴 نیروهای آمریکایی این پهپادها را رهگیری کردند و همچنین یک واحد پرتاب پهپاد ایرانی دیگر را روی زمین قبل از اینکه بتواند شلیک کند، هدف قرار دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 11:33
 ---
 
