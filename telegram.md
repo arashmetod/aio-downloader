@@ -7,6 +7,105 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 10:52
+---
+
+## WithYashar — post 12776
+
+<div align="center">
+  <img src="telegram/content/WithYashar_12776_1779952973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بامداد امروز بعد از شلیک موشک از امیدیه خوزستان به سمت کویت ، صدای انفجار شنیده شده و ستون دود دیده شده که ظاهراً لانچری که موشک ازش شلیک شده بلافاصله توسط ارتش آمریکا مورد هدف قرار گرفته
+@withyashar
+</div>
+
+## pm_afshaa — post 91716
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+vless://06b65903-406d-4a41-8463-6fd5c0ee7798@43.169.18.179:443?path=%2F&security=tls&encryption=none&insecure=0&host=sni.skylee4.cloudns.ch&fp=chrome&type=ws&allowInsecure=0&sni=sni.skylee4.cloudns.ch#PMTV%20NEWS%F0%9F%A6%81%E2%98%80%EF%B8%8F
+
+سرعت بالا مخصوص اینستا و دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91715
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=87.248.129.13&port=15&secret=ee1603010200010001fc030386e24c3add63646e2e79656b74616e65742e636f6d
+
+پروکسی متصل سرعت بالا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## FarsiVOA — post 218869
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218869_1779952973.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رئیس اتحادیه صنف چاپخانه‌داران و صحاف تهران، اعلام کرد که بخش قابل توجهی افزایش قیمت کالاها و اجناس، ناشی از هزینه بسته‌بندی و افزایش ۲۰۰ تا ۴۰۰ درصدی قیمت مواد اولیه صنعت چاپ است.
+
+بابک عابدین به خبرگزاری ایلنا گفته است که هزینه‌ بسته‌بندی و چاپ، تأثیر مستقیم بر تورم قیمت کالاهای اساسی داشته است.
+
+او یادآور شد که بخش قابل توجهی از این افزایش قیمت، ناشی از هزینه بسته‌بندی است، زیرا برای تهیه مواد اولیه مانند پلیمرها، آلومینیوم و کاغذ مجبور به پرداخت هزینه‌های چندبرابری هستیم.
+
+به گفته رئیس اتحادیه صنف چاپخانه‌داران، این هزینه‌ها مستقیماً به صنایع مصرفی منتقل و در نهایت به صورت تورم شدید به مصرف‌کننده تحمیل می‌شود.
+
+عابدین یادآور شد که پس از جنگ، قیمت موادی مانند آلومینیوم و ورق‌های چاپ‌پذیری که در بسته‌بندی استفاده می‌شوند به سطح بی‌سابقه‌ای رسیده است.
+@FarsiVOA
+</div>
+
+## alonews — post 123222
+
+<div align="center">
+  <a href="telegram/content/alonews_123222_1779952974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈علی باقری کنی، معاون دبیر شورای عالی امنیت ملی: پیگیر آزادسازی تمام دارایی‌های مسدودشده ایران در آمریکا هستیم؛ این دارایی‌ها باید بدون قید و شرط به کشور بازگردانده شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123221
+
+<div align="center">
+  <a href="telegram/content/alonews_123221_1779952974.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 بازار عجیب معاوضه گوسفند و سیم کارت با خودرو در ایران / مبادله کالا با کالا راه افتاد!
+
+
+🔴 بازار خودرو ایران حالا وارد فاز عجیب و جدیدی شده است
+
+
+🔴اگر سری به فضای مجازی بزنید با تبلیغات مختلف معاوضه سیم کارت و یا حتی گوسفند با خودرو مواجه می‌شوید.
+
+
+🔴به عنوان مثال فردی یک سیم کارت ۹۱۲ کد یک را با خودرویی تا ۱.۵ میلیارد تومان برای معاوضه آگهی کرده است.
+
+
+🔴از طرفی معاوضه گوسفند با خودرو هم به شدت مشاهده می‌شود و به عنوان نمونه فردی ۱۰ تا ۱۵ گوسفند را برای معاوضه با خودرو گذاشته است.
+
+
+🔴آنطور که به نظر می‌رسد حالا با افزایش قیمت‌ها شاهد مبادله‌های کالا با کالا به خصوص در زمینه خودرو هستیم
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 10:42
 ---
 
