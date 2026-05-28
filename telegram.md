@@ -7,6 +7,156 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 20:13
+---
+
+## VahidOOnLine — post 242629
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242629_1779986622.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، اعلام کرد نیروهای این کشور در دو عملیات «خشم حماسی» و «چکش نیمه‌شب» در شرایط واقعی جنگی عملکردی درخشان داشته‌اند و ماموریت‌هایی را انجام داده‌اند که بسیاری آن را غیرممکن می‌دانستند.
+
+او گفت پس از سقوط دو خلبان در ایران، ابتدا محل دقیق آن‌ها مشخص نبود و حدود یک روز بعد تایید شد چراغ‌های اضطراری هر دو خدمه فعال است. مدتی نگرانی درباره زنده بودن یکی از آن‌ها وجود داشت، اما سپس مشخص شد او زنده است، هرچند پشت خطوط دشمن گرفتار مانده بود.
+
+ونس افزود نیروی هوایی آمریکا با اعزام هواپیماها به مناطقی که تصور می‌شد امکان فرود در آن‌ها وجود ندارد و آماده‌سازی بالگردها در همان محل، یکی از خلبانان را از پشت خطوط دشمن بازگرداند و این عملیات را از جسورانه‌ترین صحنه‌های عمر خود توصیف کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242628
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242628_1779986623.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، در اظهاراتی عمان را درباره هرگونه نقش در کنترل تنگه هرمز تهدید به اقدام نظامی کرد و گفت واشنگتن اجازه نخواهد داد هیچ کشوری بر این آبراه استراتژیک مسلط شود.
+این تهدید در حالی مطرح می‌شود که عمان طی سال‌های گذشته یکی از مهم‌ترین شرکای منطقه‌ای آمریکا و میزبان همکاری‌های نظامی واشنگتن در خلیج فارس بوده است. آمریکا در عمان حضور و پایگاه نظامی دارد و مسقط در بسیاری از پرونده‌های حساس منطقه‌ای، از جمله میانجیگری میان تهران و واشینگتن و تبادل زندانیان آمریکایی، نقش کلیدی ایفا کرده است.
+همزمان اسکات بسنت، وزیر خزانه‌داری آمریکا، نیز تهدیدها علیه عمان را تکرار کرد و گفت واشنگتن هیچ‌گونه تلاش برای دریافت عوارض یا اعمال محدودیت در تنگه هرمز را تحمل نخواهد کرد.
+او هشدار داد وزارت خزانه‌داری آمریکا هر طرفی را که به‌صورت مستقیم یا غیرمستقیم در اجرای چنین طرحی نقش داشته باشد، هدف تحریم و مجازات قرار خواهد داد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342352
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+https://www.foxnews.com/politics/us-iran-reach-ceasefire-extension-pending-trumps-final-approval
+</div>
+
+## FoxNewsTwitter — post 342351
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+RT @OutnumberedFNC: 🚨BREAKING: U.S. and Iran reach an agreement on a 60-day memorandum to extend a ceasefire and launch larger negotiations on Iran’s nuclear program.
+
+Sources tell Fox it is now awaiting President Trump’s final approval.
+
+@kayleighmcenany
+</div>
+
+## IranIntlTV — post 339443
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/339443" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی اخبار شبانگاهی | پنجشنبه ۷ خرداد
+@iranintlTV
+</div>
+
+## IranIntlTV — post 339442
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339442_1779986625.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جی‌دی ونس، معاون رییس‌جمهور آمریکا، اعلام کرد نیروهای این کشور در دو عملیات «خشم حماسی» و «چکش نیمه‌شب» در شرایط واقعی جنگی عملکردی درخشان داشته‌اند و ماموریت‌هایی را انجام داده‌اند که بسیاری آن را غیرممکن می‌دانستند.
+
+او گفت پس از سقوط دو خلبان در ایران، ابتدا محل دقیق آن‌ها مشخص نبود و حدود یک روز بعد تایید شد چراغ‌های اضطراری هر دو خدمه فعال است. مدتی نگرانی درباره زنده بودن یکی از آن‌ها وجود داشت، اما سپس مشخص شد او زنده است، هرچند پشت خطوط دشمن گرفتار مانده بود.
+
+ونس افزود نیروی هوایی آمریکا با اعزام هواپیماها به مناطقی که تصور می‌شد امکان فرود در آن‌ها وجود ندارد و آماده‌سازی بالگردها در همان محل، یکی از خلبانان را از پشت خطوط دشمن بازگرداند و این عملیات را از جسورانه‌ترین صحنه‌های عمر خود توصیف کرد.
+https://iranintl.com/202605282727
+</div>
+
+## FarsiVOA — post 218896
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218896_1779986625.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ارتش اسرائیل اعلام کرد نیروهای حزب‌الله که در نزدیکی سد «قرعون» در لبنان در تلاش برای یک عملیات نظامی بودند، هدف حملات هوایی قرار گرفته‌اند.
+
+اسرائیل می‌گوید سد قرعون بزرگ‌ترین منبع آب لبنان و بخشی مهم از زیرساخت‌های انرژی و کشاورزی این کشور است.
+
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 15198
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس: ایالات متحده و ایران به پیش‌نویس تفاهم‌نامه 60 روزه ای برای تمدید آتش‌بس و آغاز مذاکرات در مورد برنامه هسته‌ای ایران دست یافته‌اند ولی ترامپ هنوز تأیید نهایی را نداده است. به گفته اکسیوس بیشتر مفاد تا سه‌شنبه این هفته نهایی شده بود و مذاکره‌کنندگان…
+</div>
+
+## IranianMinds — post 20964
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فوری آکسیوس: توافق ایران و آمریکا در انتظار تایید نهایی ترامپ باراک راوید، خبرنگار سرشناس آکسیوس نوشت: دو مقام آمریکایی و یک منبع منطقه‌ای درگیر در تلاش‌های میانجی‌گرانه به من گفتند که آمریکا و ایران به توافق رسیده‌اند، اما این توافق نیازمند تایید نهایی…
+</div>
+
+## BBCPersian — post 282276
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_282276_1779986626.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻یک بوفالوی بنگلادشی که به‌خاطر موهای طلایی و پرپشتش، «دونالد ترامپ» لقب گرفته بود، پس از مشهور شدن در شبکه‌های اجتماعی، از قربانی شدن نجات پیدا کرد و قرار است از این پس در باغ‌وحش ملی بنگلادش نگهداری شود. 
+
+این بوفالوی نر ۷۰۰ کیلویی، که از نوع نادر آلبینو است، قرار بود برای جشن عید قربان ذبح شود.
+
+https://bbc.in/4nXjB3p
+@BBCPersian
+</div>
+
+## alonews — post 123334
+
+<div align="center">
+  <a href="telegram/content/alonews_123334_1779986628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈امانوئل مکرون، رئیس‌جمهور فرانسه:
+هیچ چیز حملاتی را که امروز در جنوب لبنان انجام می‌شود توجیه نمی‌کند.
+
+
+🔴ما بار دیگر خواستار پایان این حملات، بازگشت به صلح و گفتگو، و ایجاد یک راه حل پایدار هستیم.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123333
+
+<div align="center">
+  <a href="telegram/content/alonews_123333_1779986628.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 اتحادیه اروپا: اگر اوضاع تنگه هرمز بهبود نیابد، بازار سوخت جت با مشکل مواجه خواهد شد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 20:03
 ---
 
