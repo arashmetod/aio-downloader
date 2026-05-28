@@ -7,6 +7,164 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 17:24
+---
+
+## VahidOOnLine — post 242605
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242605_1779976441.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات موشکی و پهپادی جمهوری اسلامی به کویت، وزارت خارجه عربستان سعودی در بیانیه‌ای در شبکه ایکس، حملات خصمانه با موشک و پهپاد به کویت را به‌شدت محکوم و تقبیح کرد.
+
+این وزارتخانه همچنین بر مخالفت قاطع عربستان با نقض حاکمیت کشورها و تلاش برای تهدید امنیت و ثبات منطقه تاکید کرد.
+
+عربستان در ادامه، همبستگی خود با دولت و مردم کویت را اعلام و تاکید کرد از هر اقدامی که کویت برای حفظ حاکمیت، امنیت و ثبات خود اتخاذ کند، حمایت می‌کند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روسیه: ترامپ با انتقال اورانیوم غنی‌شده ایران به مسکو موافقت نکرد
+@withyashar
+</div>
+
+## WithYashar — post 12793
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پیغام فیکی از ترامپ که از یک پیج فیک ایکس است داره میچرخه. ترامپ هیچ پیجی در شبکه ایکس یا توییتر ندارد و فقط در تروسوشال پست میگذارد. این مسئله رو دقت کنید.
+@withyashar
+</div>
+
+## pm_afshaa — post 91739
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴نتانیاهو :دستور گسترش عملیات زمینی رو دادم ، ما امروز از رودخانه لیتانی در جنوب لبنان هم عبور کردیم و عملیات نابودی حزب الله با قدرت ادامه داره
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339417
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339417_1779976442.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سنتکام اعلام کرد نیروهای کویتی یک موشک بالستیک شلیک‌شده از ایران به سمت کویت را رهگیری و منهدم کردند. سنتکام این اقدام را نقض فاحش آتش‌بس خواند و افزود که پیش از آن نیز پنج پهپاد انتحاری جمهوری اسلامی در نزدیکی تنگه هرمز رهگیری شد و از پرتاب ششمین پهپاد از یک مرکز نظامی در بندرعباس جلوگیری شد.
+
+جزییات بیشتر با سمیرا قرایی، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339416
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339416_1779976444.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در پی حملات موشکی و پهپادی جمهوری اسلامی به کویت، وزارت خارجه عربستان سعودی در بیانیه‌ای در شبکه ایکس، حملات خصمانه با موشک و پهپاد به کویت را به‌شدت محکوم و تقبیح کرد.
+
+این وزارتخانه همچنین بر مخالفت قاطع عربستان با نقض حاکمیت کشورها و تلاش برای تهدید امنیت و ثبات منطقه تاکید کرد.
+
+عربستان در ادامه، همبستگی خود با دولت و مردم کویت را اعلام و تاکید کرد از هر اقدامی که کویت برای حفظ حاکمیت، امنیت و ثبات خود اتخاذ کند، حمایت می‌کند.
+https://iranintl.com/202605285499
+</div>
+
+## FarsiVOA — post 218888
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺سنتکام: مسیر ۱۱۱ شناور تجاری را تغییر داد‌ه‌ایم
+
+▪️فرماندهی مرکزی ایالات متحده، سنتکام، پنج‌شنبه ۷ خرداد، اعلام کرد: «نیروهای آمریکایی در ادامه اجرای محاصره علیه جمهوری اسلامی، مسیر ۱۱۱ شناور تجاری را تغییر داد‌ه‌اند.»
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/centcom-change-of-course-111-vessels-iran/8154830.html/?nocach=1
+</div>
+
+## IranianMinds — post 20950
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_20950_1779976444.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 چند وقت پیش یکی از تروریست ها و طرفدارای جمهوری اسلامی توی لندن اومد یکی از هموطنامونو با ماشین زیر گرفت و فرار کرد !
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390397
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390397_1779976446.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گوشیم حاملست، دعا کنید آیفون باشه...😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390396
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390396_1779976446.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+انصافا همه حرکات خوب و کابردی بودن ولی ؛
+
+
+امان امان از حرکت گربه گاو و مار کبری، روح آدم رو تازه میکنه...
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390395
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏وقتی شما نبودید:
+• محسن چاووشی آهنگ «حسبی الله» داد، گفت حاضرم ۴۷ سال دیگر به جمهوری اسلامی فرصت بدهم نقایصش را برطرف کند، لاریجانی هم از او تشکر کرد و چند وقت بعد شد چهره هنر انقلاب.
+• علی زند وکیلی، بنیامین و علی قمصری روی پل و راه‌آهن و نیروگاه برق ضجه می‌زدند.
+• محسن نامجو به همه‌مان گفت وطن‌فروش.
+• علی عظیمی گفت شما روسیاه تاریخید.
+• ایرج طهماسب به دیاسپورا گفت برای خوشبختی به خارج رفتند، بعد فهمیدند خوشبختی را در خانه کودکی‌شان جا گذاشته‌اند.
+• کینگ رام خون پدرش را فروخت و برای حکومت کنسرت برگزار کرد.
+• صدف بیوتی به مردم گفت شما مثل مجاهدین هستید.
+• سهیل مستجابیان هم توی کلوزفرند به مردم فحش داد که بعدش لو رفت.
+• بهزاد فراهانی گفت ما بیضه داشتیم شاهو کشیدیم پایین، شما هم اگه دارید انقلاب کنید.
+• حسین رزاق توی کلاب‌هاوس نقش نماینده دادستان جمهوری اسلامی را گرفته بود و برای بازداشت‌شده‌ها کیفرخواست اعدام صادر می‌کرد.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123305
+
+<div align="center">
+  <a href="telegram/content/alonews_123305_1779976448.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈وضعیت وخیم لبنان بعد بمباران امروز
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 17:13
 ---
 
