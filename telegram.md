@@ -7,6 +7,105 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 02:22
+---
+
+## FoxNewsTwitter — post 342369
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342369_1780008739.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Mayor Zohran Mamdani defends his decision to skip the Israel Day Parade, making him the first New York City mayor to bypass the historic event since 1964.
+
+"I said on the campaign trail that I wouldn't be attending the parade, and I've made my views on the Israeli government abundantly clear.”
+
+“And I also said on that same campaign that I would have a responsibility as the mayor of the city to ensure the safety and security of each and every New Yorker.”
+
+“And I don't believe that my presence as the mayor should determine whether or not a New Yorker is safe or secure."
+</div>
+
+## pm_afshaa — post 91802
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+#مهم
+عزیزای دلم همگی الان چنل زاپاس‌مون رو جوین بشید کانال تحت ریپورت شدیده اگه چیزی شد زاپاس رو داشته باشید فعالیت میاد اونور
+👇
+
+https://t.me/Pm_Zapas
+https://t.me/Pm_Zapas
+</div>
+
+## VahidOnline — post 75783
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75783_1780008741.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌ ‌ ‌ ‌
+شیخ تمیم بن حمد آل ثانی، امیر قطر، در تماسی تلفنی با دونالد ترامپ، رئیس جمهور آمریکا، در مورد تحولات منطقه‌ای گفتگو کرد.
+
+دفتر امیر قطر در گزارشی از این مکالمه تلفنی اعلام کرد که شیخ تمیم بر اهمیت اولویت دادن به راه‌حل‌های دیپلماتیک و گفت‌وگو بین همه طرف‌ها به امید جلوگیری از تنش‌ها و تشدید بیشتر در خاورمیانه تأکید کرد.
+
+در این بیانیه آمده است که ترامپ نیز به نوبه خود از نقش قطر در حمایت از تلاش‌های میانجیگری پاکستان بین واشنگتن و تهران قدردانی کرد و «از تلاش‌های قطر برای رفع اختلافات و ترویج کاهش تنش در منطقه» تمجید کرد.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## IranIntlTV — post 339484
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339484_1780008742.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سازمان حقوق بشر برای ورزش به همراه ائتلافی از ۳۴ نهاد مدنی در نامه‌ای فوری به فیفا نسبت به بحران فزاینده حقوق بشر در فوتبال ایران و تداوم حضور عادی تیم ملی هشدار داد.
+
+گفت‌وگو با زهره عبداله‌خانی، عضو هیات رییسه سازمان حقوق بشر برای ورزش
+@iranintltv
+</div>
+
+## FarsiVOA — post 218940
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218940_1780008744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️در پی گزارش‌ها از حمله موشکی ساعات قبل جمهوری اسلامی، خبرگزاری رویترز به نقل از یک مقام آمریکایی گزارش داد که علیرغم ادعاهای تلویزیون حکومتی جمهوری اسلامی، هیچ هواپیمای آمریکایی در نزدیکی بوشهر در ایران سرنگون نشده است.
+@FarsiVOA
+</div>
+
+## IranianMinds — post 20981
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه ماه از اون روز باشکوه گذشت ... جسدشو هنوز خاک نکردن @IranianMinds
+</div>
+
+## IranianMinds — post 20980
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه ماه از اون روز باشکوه گذشت ... جسدشو هنوز خاک نکردن @IranianMinds
+</div>
+
+## IranianMinds — post 20979
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20979_1780008744.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سه ماه از اون روز باشکوه گذشت ...
+
+جسدشو هنوز خاک نکردن
+
+@IranianMinds
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 02:12
 ---
 
