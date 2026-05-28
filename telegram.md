@@ -7,6 +7,231 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/07 20:03
+---
+
+## FoxNewsTwitter — post 342350
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+BREAKING: U.S., Iran negotiators agree on 60-day memo of understanding to extend ceasefire and launch negotiations on Iran's nuclear program, but Trump has yet to give final approval, sources tell Fox News
+</div>
+
+## Shin_Persian — post 6285
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📦 mhrv-rs v1.9.36 released
+
+• Apps Script account quota tracking (#1396)
+• iOS full-tunnel app scaffold (#1398)
+• Prevent tunnel-node Full mode OOMs (#1401)
+
+Files (Android APKs, Windows, macOS, Linux, OpenWRT) on the files channel:
+
+👉 v1.9.36 — all files with SHA-256
+
+Channel:
+https://t.me/mhrv_rs
+or: https://t.me/+R1OyoHX2boA1ZDgx
+
+#v1936
+</div>
+
+## FarsiVOA — post 218895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺وزارت خزانه‌داری آمریکا «نهاد مدیریت آبراه خلیج فارس» جمهوری اسلامی را تحریم کرد
+
+▪️دولت آمریکا در راستای اعمال کارزار «خشم اقتصادی» علیه جمهوری اسلامی و در ادامه تلاش واشنگتن برای مقابله با «اخاذی دریایی» تهران، روز پنجشنبه ۷ خرداد «نهاد مدیریت آبراه خلیج فارس» جمهوری اسلامی را تحریم کرد.
+
+⬇️ بیشتر بخوانید:
+
+https://ir.voanews.com/a/economic-fury-targets-iranian-maritime-extortion-persian-gulf-strait-authority/8154848.html/?nocach=1
+</div>
+
+## FarsiVOA — post 218894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادغام شاخە مسلح جریان مقتدی صدر با دولت و واکنش‌های بعد از آن در عراق
+</div>
+
+## Persian_Trend_Official — post 15193
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حضور پدافند موشکی برد کوتاه مجید ایرانی در رژه ارتش ارمنستان چند روز پیش در پی جابه‌جایی ادوات نظامی توسط ارتش ارمنستان در سطح شهر ایروان برای برگزاری رژه روز جمهوری ارمنستان، تصاویری از سیستم پدافندی برد کوتاه مجید با نام صادراتی AD-08 در خیابان های این…
+</div>
+
+## RadioFarda — post 157665
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157665_1779986026.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸اسکات بسنت، وزیر خزانه‌داری آمریکا، روز پنج‌شنبه در پیامی در شبکه ایکس هشدار داد که عمان باید بداند دولت آمریکا به‌طور «تهاجمی» هر طرفی را که در تسهیل دریافت عوارض برای عبور از تنگه هرمز نقش داشته باشد، هدف قرار خواهد داد.
+
+🔸او افزود که هر شریک یا طرفی که در تلاش برای اعمال سیستم اخذ عوارض در تنگه هرمز مشارکت کند، با مجازات و تحریم روبه‌رو خواهد شد.
+
+🔸این تهدید یک روز بعد از آن صورت گرفته که دونالد ترامپ، رئیس‌جمهور آمریکا، با تأکید بر لزوم باز شدن فوری تنگه هرمز بعد از توافق با ایران، عمان را تهدید کرد که نباید قصد کنترل این آبراه را داشته باشد.
+
+🔸او در نشست کابینه خود گفت که تنگه هرمز یک آبراه بین‌المللی است و «عمان هم مثل بقیه رفتار خواهد کرد، وگرنه مجبور می‌شویم آن‌ها را نابود کنیم.»
+
+@RadioFarda
+</div>
+
+## Dirty_Kids — post 390413
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390413_1779986027.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستی بچه‌ها وقتی نبودید دن بیلزریانم خوابید زیر آخوند
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390412
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یه جوری اینترنتو «وصل» کردن که آدم دلش برای دورانِ قطع بودن تنگ میشه.
+اون موقع حداقل تکلیف روشن بود که اینترنت نداری!
+الان هر پنج دقیقه یه بار امیدوار میشی، بعد دوباره هیچی باز نمیشه.
+شکنجه‌ی روانی رو اسمشو گذاشتن اینترنت!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390411
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390411_1779986028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بی‌بی رکسنا یجوری شده که راننده کامیونا براش رگشونو میزنن
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390410
+
+<div align="center">
+  <a href="https://t.me/Dirty_Kids/390410" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+✅ اپلیکیشن اندروید سایت جهانی دربی بت
+
+💰اولین سایت جهانی با امکان شارژ و برداشت ریالی(کارت به کارت)
+
+🔗 برای ورود فیلترشکن روی کشور مناسب قرار دهید مانند فنلاند و المان و....
+
+😀Telegram Channel
+👇
+https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390409
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390409_1779986028.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😤دنبال یه سایت شرط بندی بین المللی بودی که به ایرانیا خدمات بده؟!
+⛔
+
+
+👍دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+
+
+🔔کانال دربی بت :
+
+🪙https://t.me/+bcynkEgSW2dlYTc0
+</div>
+
+## Dirty_Kids — post 390408
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ادعای اکسیوس:
+
+مقامات آمریکایی گفتند که مفاد توافق تا روز سه‌شنبه تقریباً توافق شده بود، اما هر دو طرف نیازمند دریافت تأییدیه از مقامات عالیه خود خود بودند.
+
+مذاکره‌کنندگان آمریکایی جزییات توافق نهایی را به ترامپ گزارش دادند، اما او فوراً آن را تأیید نکرد.
+
+یک مقام آمریکایی ادعا کرد: «رئیس‌جمهور به میانجی‌گران اعلام کرد که چند روز برای فکر کردن در این مورد فرصت می‌خواهد.»
+
+به گفته مقامات، آمریکا و ایران به توافق رسیده‌اند اما تأیید نهایی ترامپ باقی مانده.
+﻿﻿
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123332
+
+<div align="center">
+  <a href="telegram/content/alonews_123332_1779986029.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اکبری، معاون وزیر ارتباطات: بهبود کیفیت اینترنت چند روزی زمان میبره پس صبور باشید.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123331
+
+<div align="center">
+  <a href="telegram/content/alonews_123331_1779986030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈اسکات بسنت، وزیر خزانه‌داری آمریکا خطاب به عمان: می‌دانیم با ایران دارید چیکار می‌کنید، مجازات خواهید شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 123330
+
+<div align="center">
+  <a href="telegram/content/alonews_123330_1779986030.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈رادیو ارتش اسرائیل به نقل از یک منبع نظامی عالی رتبه: بعید نمی‌دانیم که لبنان بخشی از توافق آینده آمریکا با ایران باشد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/07 19:54
 ---
 
