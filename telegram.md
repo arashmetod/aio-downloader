@@ -7,6 +7,25 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 07:52
+---
+
+## alonews — post 123415
+
+<div align="center">
+  <a href="telegram/content/alonews_123415_1780028544.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ونس: واشنگتن در مذاکرات با ایران «پیشرفت زیادی» داشته و معتقد است تهران «دست‌کم تا این لحظه، با حسن نیت در حال مذاکره است.»
+
+
+🔴ونس گفت: «ایرانی‌ها خواهان توافق هستند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 07:42
 ---
 
