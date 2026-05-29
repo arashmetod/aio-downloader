@@ -7,6 +7,78 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 03:32
+---
+
+## VahidOOnLine — post 242676
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️امانوئل مکرون، رئیس‌جمهوری فرانسه و همسرش بریجیت، در نخستین حضور رسانه‌ای خود پس ازاظهارات جنجالی نشریه پاری‌ماچ درباره« رابطه افلاطونی» امانوئل و گلشیفته در کاخ الیزه از پرابوو سوبیانتو، رئیس‌جمهوری اندونزی استقبال کردند. در این دیدار رسمی، رئیس‌جمهوری اندونزی در بیانیه‌ای مطبوعاتی، فرانسه را «پیشگام» راه‌حل دو کشوری در خاورمیانه خواند و مکرون نیز ابراز امیدواری کرد که توافقنامه مشارکت اقتصادی جامع میان اتحادیه اروپا و اندونزی هرچه سریع‌تر اجرایی شود.
+
+این حضور مشترک در حالی صورت می‌گیرد که اخیرا اظهارات فلوریان تردیف، خبرنگار روزنامه پاری‌مچ و نویسنده کتاب «یک زوج "تقریبا" کامل»، جنجال بزرگی به پا کرده است. تردیف در مصاحبه با رادیو فرانسه تایید کرد که بریجیت مکرون سال گذشته در جریان سفر به شرق آسیا (پرواز پاریس-سنگاپور)، پیامی از گلشیفته فراهانی را در تلفن همراه همسرش دیده بود. وی فاش کرد که رئیس‌جمهوری فرانسه برای چند ماه «رابطه افلاطونی» با این بازیگر ۴۲ ساله داشته است؛ اتفاقی که در هواپیما منجر به جدال لفظی شدید و سیلی خوردن مکرون از بریجیت شد.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242675
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242675_1780012952.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دادگستری آمریکا اعلام کرد یک شهروند دوتابعیتی ایرانی-عراقی را با اتهام‌های مرتبط با تروریسم متهم کرده است. به گفته این وزارتخانه، محمدباقر سعد داوود الساعدی به ارائه حمایت مادی به سپاه پاسداران و گروه کتائب حزب‌الله متهم شده است.
+وزارت دادگستری آمریکا گفت الساعدی در یک کیفرخواست هشت‌فقره‌ای متهم شده که شامل توطئه برای ارائه حمایت مادی به سازمان‌های تروریستی خارجی و نقش داشتن در تلاش برای انجام حملات در اروپا و آمریکا است.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## FoxNewsTwitter — post 342374
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342374_1780012953.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JESSE WATTERS: "Who cares if they don't like the food? Get 'em out of here."
+
+"Cory Booker says this ICE facility shouldn't be in New Jersey. Why? Where should it be in?"
+
+"You got to keep them somewhere before you send them home. https://twitter.com/TheFive/status/2060112010327511267#m
+</div>
+
+## FoxNewsTwitter — post 342373
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342373_1780012954.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A fire captain jumped into rushing floodwaters to save a baby deer being swept downstream in Indiana.
+
+The Madison Township Fire Department was responding to call about a person stuck in a car in a flooded roadway, but when they arrived, the person had been able to get themselves out without help. That's when rescuers heard a baby deer in trouble.
+
+Capt. Joe Sinclair went in the water to save it, with his crew helping to pull him and the deer back to safety. The deer was transported to a local wildlife rescue.
+</div>
+
+## IranIntlTV — post 339491
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339491_1780012956.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت دادگستری آمریکا اعلام کرد یک شهروند دوتابعیتی ایرانی-عراقی را با اتهام‌های مرتبط با تروریسم متهم کرده است. به گفته این وزارتخانه، محمدباقر سعد داوود الساعدی به ارائه حمایت مادی به سپاه پاسداران و گروه کتائب حزب‌الله متهم شده است.
+وزارت دادگستری آمریکا گفت الساعدی در یک کیفرخواست هشت‌فقره‌ای متهم شده که شامل توطئه برای ارائه حمایت مادی به سازمان‌های تروریستی خارجی و نقش داشتن در تلاش برای انجام حملات در اروپا و آمریکا است.
+
+https://iranintl.com/202605287517
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 03:22
 ---
 
