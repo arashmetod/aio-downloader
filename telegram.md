@@ -7,6 +7,123 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 15:43
+---
+
+## FoxNewsTwitter — post 342396
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342396_1780056780.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH: Secretary Pete Hegseth gives a rousing speech to sailors and Marines aboard the USS Boxer, praising them for being the force behind America’s strength in the conflict with Iran:
+
+“As the President said in the Cabinet meeting... Iran can either do it the right way with a deal across the table, or they can deal with my guy on the left and it happened to be me...”
+
+“But it’s not me. It’s you guys.”
+</div>
+
+## IranIntlTV — post 339567
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339567_1780056783.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+حملات علیه حزب‌الله لبنان در حال شدت گرفته که برخی تحلیلگران معتقدند اسرائیل می‌کوشد پیش از آنکه توافق احتمالی جمهوری اسلامی و آمریکا محدودیت تازه‌ای بر عملیاتش در لبنان اعمال کند، تا حد ممکن به حزب‌الله ضربه بزند
+
+گفت‌وگو با می فرحات، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 339566
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339566_1780056785.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+روزنامه بلژیکی لوسوار گزارش داد در حالی که تنها ۱۳ روز تا آغاز جام جهانی باقی مانده، بازیکنان تیم فوتبال ایران هنوز ویزای ورود به آمریکا را دریافت نکرده‌اند.
+
+گفت‌وگو با رها پوربخش، عضو تحریریه ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## Persian_Trend_Official — post 15238
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_15238_1780056788.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رهگیری یک پهپاد امریکایی دیگر توسط حوثی های یمن
+
+طبق تصاویر منتشر شده توسط رسانه های محلی یمن، صبح امروز یک فروند پهپاد احتمالا از نوع MQ-9 برفراز استان مارب یمن رهگیری و ساقط شده است.
+
+چند هفته پیش نیز حوثی های یمن موفق شده بودن یک فروند پهپاد MQ-9 امریکایی را در استان مارب منهدم کنند.
+
+📝 Amir
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 282335
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_282335_1780056789.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻صندوق کودکان سازمان ملل، یونیسف، می‌‌گوید در یک هفته گذشته، به‌طور میانگین، هر ۲۴ ساعت ۱۱ کودک در حملات اسرائیل در لبنان کشته یا زخمی شدند.
+
+به گفته یونیسف، در هفت روز گذشته، ۱۵ کودک در لبنان کشته و ۶۲ کودک دیگر زخمی شده‌اند.
+
+با وجود آتش‌بس، اسرائیل دامنه و شدت حملاتش در لبنان را افزایش داده است.
+
+حملات سنگین اسرائیل از شامگاه چهارشنبه تا بامداد پنج‌شنبه شهرها و روستاهایی در جنوب لبنان را هدف قرار داد.
+
+در این مدت اسرائیل مناطق جدیدی را هم به عنوان مناطق درگیری و عملیاتی اعلام کرد.
+
+اسرائیل همچنین ساختمانی را در حومه جنوبی بیروت هدف قرار داده است.
+
+یونیسف می‌گوید در مجموع، در هفت روز گذشته، ۷۷ کودک در لبنان کشته یا زخمی شدند.
+
+این نهاد در گزارش خود اعلام کرد که از زمان آغاز آتش‌بس در ماه آوریل، در مجموع ۵۵ کودک کشته و ۲۱۲ کودک زخمی شده‌اند.
+
+ریکاردو پیرس، سخنگوی یونیسف، این آمار را «تکان‌دهنده» توصیف کرد.
+
+بنابر آتش‌بسی که آمریکا از ۱۶ آوریل (۲۷ فروردين ۱۴۰۵) آن را اعلام کرد، قرار بود جنگ میان اسرائیل و حزب‌الله لبنان پایان یابد.
+
+📷EPA
+https://bbc.in/4fkdFzr
+
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390463
+
+<div align="center">
+  <a href="telegram/content/Dirty_Kids_390463_1780056789.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بهزاد فراهانی ببین دختره ولی اندازه کل هیکلت بیضه داره
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123493
+
+<div align="center">
+  <a href="telegram/content/alonews_123493_1780056791.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان: ایران با سرعت بسیار بالا داره توان موشکی خودش رو بازسازی میکنه
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 15:32
 ---
 
