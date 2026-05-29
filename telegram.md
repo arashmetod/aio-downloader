@@ -7,6 +7,300 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/08 16:42
+---
+
+## FoxNewsTwitter — post 342399
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342399_1780060369.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+WATCH LIVE: SpaceX launches Falcon 9 rocket from Florida https://twitter.com/i/broadcasts/1yxBeepDOpWJN
+</div>
+
+## pm_afshaa — post 91812
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴جی دی ونس:تا الان به توافقی با ایران دست نیافته‌ایم اما بسیار نزدیک شده‌ایم
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91811
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+https://t.me/proxy?server=57788188876777.ir.fulldf.info&port=8443&secret=EERighJJvXrFGRMCIMJdCQ==
+
+پروکسی متصل مخصوص دانلود
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## IranIntlTV — post 339577
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339577_1780060370.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمدحسن ابوترابی‌فرد، امام جمعه تهران، گفت انسان‌هایی که در «پرتو آموزه‌های وحیانی» و «مدرسه انبیا» پرورش یافته‌اند، می‌جنگند و پایگاه‌های آمریکایی را مورد تهاجم قرار می‌دهند.
+
+او با اشاره به حمله آمریکا به نقطه‌ای در حاشیه فرودگاه بندرعباس، گفت این اقدام «تعرض به آسمان و زمین ایران» بود و افزود با توان هوافضای سپاه پاسداران به آن «پاسخ سخت و شکننده» داده شد.
+
+به گفته ابوترابی‌فرد، اظهارات پنتاگون مبنی بر اینکه آتش‌بس نقض نشده، نشان‌دهنده افزایش «قدرت بازدارندگی» جمهوری اسلامی و «تغییر موازنه قدرت به نفع ایران» است.
+https://iranintl.com/202605295858
+</div>
+
+## IranIntlTV — post 339576
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339576_1780060371.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ابراهیم رضایی، سخنگوی کمیسیون امنیت ملی مجلس، در شبکه ایکس نوشت «مدیریت ایرانی تنگه هرمز در دنیا تثبیت شده است» و کشورها برای عبور شناورهای خود «اجازه می‌گیرند، هزینه‌ها را می‌پردازند و با راهنمایی نیروی دریایی سپاه» از این آبراه عبور می‌کنند.
+
+او افزود تنها کسی که این موضوع را «باور نکرده یا نمی‌خواهد باور کند» دونالد ترامپ، رییس‌جمهوری آمریکا است و نوشت: «هر چند وقت ارتشش را برای باز کردن تنگه می‌فرستد، آنها می‌آیند و کتک می‌خورند و برمی‌گردند.»
+
+رضایی همچنین خطاب به اسکات بسنت، وزیر خزانه‌داری آمریکا، نوشت: «به جای هارت و پورت اضافی به فکر تعظیم به قدرت ایرانی‌ها در خلیج فارس باشید.»
+
+بسنت گفته بود که آمریکا اخذ عوارض در تنگه هرمز را تحمل نخواهد کرد.
+https://iranintl.com/202605299812
+</div>
+
+## IranIntlTV — post 339575
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339575_1780060372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لطف‌الله دژکام، امام جمعه شیراز گفت: «ولایت فقیه در عصر غیبت، امتداد همان خط ولایت الهی و غدیر است و نظام جمهوری اسلامی بر همین اساس شکل گرفته و استمرار یافته است.»
+
+او ادامه داد: «همان‌گونه که در روز غدیر مسیر هدایت برای امت اسلامی تثبیت شد، امروز نیز تداوم این مسیر در قالب ولایت فقیه و رهبری دینی جامعه ادامه دارد.»
+
+او افزود: «بدون محوریت ولایت، نظام دینی کارکرد و معنای کامل خود را از دست می‌دهد.»
+https://iranintl.com/202605297381
+</div>
+
+## IranIntlTV — post 339574
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_339574_1780060372.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پلیس مبارزه با تروریسم لندن جمعه هشتم خرداد اعلام کرد یک شهروند یونانی به همکاری با سرویس اطلاعاتی جمهوری اسلامی متهم شده است. به گفته پلیس، این پرونده به هدف قرار دادن یک روزنامه‌نگار مستقر در بریتانیا که برای ایران‌اینترنشنال فعالیت می‌کند، مربوط است.
+
+بر اساس بیانیه پلیس، ایوانیس آیدینیدیس، ۴۶ ساله، شهروند یونان و ساکن مونیخ آلمان، ۲۶ اردیبهشت در منطقه وست ساسکس از سوی کارآگاهان پلیس مبارزه با تروریسم لندن بازداشت شد.
+
+دادگاه وست‌مینستر مجوز ادامه بازداشت او را تا ۹ خرداد صادر کرد و پس از هماهنگی با دادستانی سلطنتی، اتهام‌های مرتبط علیه او ثبت شد.
+
+پلیس اعلام کرد بر اساس ارزیابی‌ها، تهدید گسترده‌تری علیه عموم مردم در ارتباط با این پرونده وجود ندارد.
+
+هلن فلانگان، فرمانده پلیس مبارزه با تروریسم لندن، گفت: «می‌دانیم این موضوع ممکن است نگرانی‌هایی به‌ویژه در میان افرادی که در رسانه‌های فارسی‌زبان فعالیت می‌کنند ایجاد کند. ما با شماری از سازمان‌ها و افراد همکاری نزدیک داریم تا درباره ایمنی و امنیت به آن‌ها مشاوره و حمایت ارائه دهیم و این شامل فرد و سازمان مرتبط با این پرونده نیز می‌شود.»
+https://iranintl.com/
+</div>
+
+## IranIntlTV — post 339573
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339573_1780060373.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک جوان با ارسال پیامی به ایران اینترنشنال از افزایش گرانی‌ها و ناتوانی مالی برای تامین معیشت خود و پدرش روایت می‌کند. بازخوانی پیام این شهروند و ساخت تصویر با هوش مصنوعی انجام گرفته است.
+</div>
+
+## Shin_Persian — post 6295
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6295_1780060376.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet: Shin ✓ @hey_itsmyturn Fri, 29 May 2026 13:10:40 UTC The Speaker of Parliament and the head of Islamic Regime's negotiating team, Mohammad Bagher Ghalibaf posted a three-point statement outlining clear position regarding negotiations…
+</div>
+
+## Shin_Persian — post 6294
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔁 Quoting above tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 29 May 2026 13:10:40 UTC
+
+The Speaker of Parliament and the head of Islamic Regime's negotiating team, Mohammad Bagher Ghalibaf posted a three-point statement outlining clear position regarding negotiations with the United States:
+
+"1. We achieve concessions not through dialogue, but through missiles; in negotiations, we merely articulate them.
+
+2. We do not trust guarantees or words; only actions serve as a measure. No action will be taken before the opposing party acts.
+
+3. The victor of any agreement is the one who, from the day after, prepares better for war."
+
+فارسی
+
+رئیس مجلس و رئیس تیم مذاکره‌کننده رژیم اسلامی، محمدباقر قالیباف، بیانیه‌ای سه‌عاملی را منتشر کرد که موضع شفافی را در خصوص مذاکره با ایالات متحده ترسیم می‌کند:
+
+«۱. ما امتیازها را نه از طریق گفتگو، بلکه با موشک‌ها به دست می‌آوریم؛ در مذاکرات، ما صرفاً آن‌ها را بیان می‌کنیم.
+
+۲. ما به تضمین‌ها یا واژه‌ها اعتماد نمی‌کنیم؛ تنها عمل ملاک است. هیچ اقدامی پیش از اقدام طرف مقابل انجام نخواهد شد.
+
+۳. پیروز هر توافقی کسی است که از فردای آن روز، خود را بهتر برای جنگ آماده کند.»
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6293
+
+<div align="center">
+  <a href="telegram/content/Shin_Persian_6293_1780060377.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Israel War Room ✓ @IsraelWarRoom Thu, 28 May 2026 23:27:55 UTC .@VP Vance says the US has made "a lot of progress" in negotiations with Iran, but major disputes remain over Iran's uranium enrichment program and its highly enriched uranium…
+</div>
+
+## Shin_Persian — post 6292
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Israel War Room ✓ @IsraelWarRoom
+Thu, 28 May 2026 23:27:55 UTC
+
+.@VP Vance says the US has made "a lot of progress" in negotiations with Iran, but major disputes remain over Iran's uranium enrichment program and its highly enriched uranium stockpile.
+
+"We're going back and forth on a couple of language points... Hopefully, we'll continue to
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+.@VP ونس می‌گوید ایالات متحده در مذاکرات با ایران به "پیشرفت‌های زیادی" دست یافته است، اما اختلافات عمده بر سر برنامه غنی‌سازی اورانیوم ایران و ذخایر اورانیوم با غنی‌سازی بالای این کشور همچنان باقی است.
+
+"ما بر سر چند نکته زبانی در حال رایزنی رفت و برگشتی هستیم... امیدواریم که به ادامه دهیم"
+
+𝕏 · @shin_persian
+</div>
+
+## FarsiVOA — post 218974
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_218974_1780060379.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فرماندهی مرکزی ایالات متحده، سنتکام، تصویری از برخاستن یک بالگرد «سی‌اچ-۴۷ شینوک» ارتش آمریکا از یک فرودگاه در خاورمیانه منتشر کرد.
+
+به گفته سنتکام، شینوک سریع‌ترین و سنگین‌ترین بالگرد ترابری ارتش آمریکا است.
+
+@FarsiVOA
+</div>
+
+## RadioFarda — post 157691
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157691_1780060380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📷 Photo
+</div>
+
+## IranianMinds — post 21014
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21014_1780060380.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ژنرال محسن رضایی :
+
+محاصره دریایی رو برمیداریم‌ ما حالا چه با زبون زور و قدرت و یا چه با مذاکره
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 21013
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 امام جمعه ساری هم گفت:
+
+با شعار مرگ بر آمریکا، شیطان بزرگ را سنگسار می‌کنیم😂
+
+@IranianMinds
+</div>
+
+## Dirty_Kids — post 390471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مدیونید اگه فکرکنید هدفش نشون دادن چیز دیگه ای جز شلوار خنکش هست🦦 فقط پوزیشن های خوبی برا نمایش شلوارش انتخاب نکرده🤌
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390470
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390470_1780060381.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+عکس عروسی دختر عموم پونزده سال پیش این مدلی بود:))))) تمام پیرزنای فامیل داشتن سکته میکردن.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390465
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توی آپدیت جدید اینستا میشه تو قسمت کامنتا عکس گذاشت، بعد طرف پست گذاشته: سمی‌ و خنده‌دار ترین عکسی که از رفیقت داری کامنت کن.
+
+و به این صورت ملت شرف برای رفیقاشون نذاشتن😂
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390464
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390464_1780060382.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تراپی
+
+موقع چصناله میدونن اقلیت هستن
+
+
+@Dirty_Kids 👻
+</div>
+
+## alonews — post 123499
+
+<div align="center">
+  <a href="telegram/content/alonews_123499_1780060382.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کارشناس صداوسیما: دوران بمب اتم گذشته است؛ الان با عملیات میکروبی و بیولوژیک می‌توان حملاتی انجام داد و مسئولیت آن را گردن نگرفت
+
+
+🔴می‌توان بمب چرک استفاده کرد
+
+
+🔴ممکن است شرایط به جایی برسد که به رویارویی هسته‌ای برسیم؛ باید اقدامات پیشگیرانه انجام داد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/08 16:32
 ---
 
